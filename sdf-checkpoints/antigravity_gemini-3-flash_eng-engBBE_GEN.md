@@ -7,9 +7,10 @@ book_code: GEN
 corpus_version: f15fa4a
 pipeline_version: af3302e
 started_at: '2026-03-01T17:35:38.665794+01:00'
-last_updated_at: '2026-03-03T00:36:43.672702+01:00'
+last_updated_at: '2026-03-03T03:24:48.670070+01:00'
 status: IN_PROGRESS
 agent_host: jahabdank-HP-ZBook-Fury
+total_chapters: 50
 
 ---
 
@@ -35,3 +36,27 @@ agent_host: jahabdank-HP-ZBook-Fury
 | `2026-03-01T17:41:11.504142+01:00` | `CHAPTER 15 COMPLETE` | `/convert` | Wrote 506 words. Added 3 Q&D items. Tokens: 800/800. |
 | `2026-03-01T17:41:31.625625+01:00` | `CHAPTER 16 COMPLETE` | `/convert` | Wrote 462 words. Added 3 Q&D items. Tokens: 800/800. |
 | `2026-03-01T17:41:55.852210+01:00` | `CHAPTER 17 COMPLETE` | `/convert` | Wrote 765 words. Added 3 Q&D items. Tokens: 800/800. |
+| `2026-03-03T01:57:50.247671+01:00` | `RECOVERED` | `/convert` | Resuming from chapter 18 on jahabdank-HP-ZBook-Fury. |
+| `2026-03-03T03:12:30.799856+01:00` | `RECOVERED` | `/convert` | Resuming from chapter 18 on jahabdank-HP-ZBook-Fury. |
+| `2026-03-03T03:13:14.541974+01:00` | `CHAPTER 18 COMPLETE` | `/convert` | Wrote 931 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:13:49.735669+01:00` | `CHAPTER 19 COMPLETE` | `/convert` | Wrote 1169 words. 5 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:14:18.068962+01:00` | `CHAPTER 20 COMPLETE` | `/convert` | Wrote 555 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:14:49.726808+01:00` | `CHAPTER 21 COMPLETE` | `/convert` | Wrote 842 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:15:19.493608+01:00` | `CHAPTER 22 COMPLETE` | `/convert` | Wrote 682 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:15:51.165316+01:00` | `CHAPTER 23 COMPLETE` | `/convert` | Wrote 538 words. 3 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:16:34.230109+01:00` | `CHAPTER 24 COMPLETE` | `/convert` | Wrote 1916 words. 5 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:17:04.411605+01:00` | `CHAPTER 25 COMPLETE` | `/convert` | Wrote 763 words. 3 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:17:39.278513+01:00` | `CHAPTER 26 COMPLETE` | `/convert` | Wrote 982 words. 5 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:18:16.471245+01:00` | `CHAPTER 27 COMPLETE` | `/convert` | Wrote 1378 words. 5 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:18:46.255001+01:00` | `CHAPTER 28 COMPLETE` | `/convert` | Wrote 669 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:19:20.457204+01:00` | `CHAPTER 29 COMPLETE` | `/convert` | Wrote 959 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:19:56.000752+01:00` | `CHAPTER 30 COMPLETE` | `/convert` | Wrote 1150 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:20:35.529262+01:00` | `CHAPTER 31 COMPLETE` | `/convert` | Wrote 1537 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:21:08.490558+01:00` | `CHAPTER 32 COMPLETE` | `/convert` | Wrote 887 words. 5 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:21:37.011299+01:00` | `CHAPTER 33 COMPLETE` | `/convert` | Wrote 545 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:22:10.119354+01:00` | `CHAPTER 34 COMPLETE` | `/convert` | Wrote 871 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:22:41.684865+01:00` | `CHAPTER 35 COMPLETE` | `/convert` | Wrote 776 words. 5 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:23:14.861227+01:00` | `CHAPTER 36 COMPLETE` | `/convert` | Wrote 877 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:23:47.692598+01:00` | `CHAPTER 37 COMPLETE` | `/convert` | Wrote 1020 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:24:20.608839+01:00` | `CHAPTER 38 COMPLETE` | `/convert` | Wrote 916 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:24:48.670070+01:00` | `CHAPTER 39 COMPLETE` | `/convert` | Wrote 616 words. 4 Q&D. Tokens: ?/?. |

@@ -7,8 +7,8 @@ book_code: GEN
 corpus_version: f15fa4a
 pipeline_version: af3302e
 started_at: '2026-03-01T16:09:03.898627+01:00'
-last_updated_at: '2026-03-03T01:12:48.403907+01:00'
-status: IN_PROGRESS
+last_updated_at: '2026-03-03T01:42:51.304511+01:00'
+status: COMPLETED
 agent_host: jahabdank-HP-ZBook-Fury
 
 ---
@@ -72,3 +72,5 @@ agent_host: jahabdank-HP-ZBook-Fury
 | `2026-03-03T01:11:35.403220+01:00` | `CHAPTER 48 COMPLETE` | `/convert` | Wrote 831 words. Added 0 Q&D items. Tokens: 1500/1800. |
 | `2026-03-03T01:12:21.076397+01:00` | `CHAPTER 49 COMPLETE` | `/convert` | Wrote 1015 words. Added 0 Q&D items. Tokens: 1500/1800. |
 | `2026-03-03T01:12:48.403907+01:00` | `CHAPTER 50 COMPLETE` | `/convert` | Wrote 895 words. Added 0 Q&D items. Tokens: 1500/1800. |
+| `2026-03-03T01:42:51.304511+01:00` | `FIRST_PASS_COMPLETE` | `/convert` | Total chapters: 50. |
+| `2026-03-03T01:42:51.304511+01:00` | `QD_CREATED` | `/convert` | Saved Q&D file with dilemmas. |

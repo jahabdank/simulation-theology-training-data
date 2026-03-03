@@ -7,8 +7,8 @@ book_code: NUM
 corpus_version: f15fa4a
 pipeline_version: af3302e
 started_at: '2026-03-01T17:35:38.665794+01:00'
-last_updated_at: '2026-03-03T00:55:42.526489+01:00'
-status: IN_PROGRESS
+last_updated_at: '2026-03-03T02:00:17.806478+01:00'
+status: COMPLETED
 agent_host: jahabdank-HP-ZBook-Fury
 
 ---
@@ -54,3 +54,5 @@ agent_host: jahabdank-HP-ZBook-Fury
 | `2026-03-03T00:54:50.966759+01:00` | `CHAPTER 34 COMPLETE` | `/convert` | Wrote 664 words. Added 0 Q&D items. Tokens: 800/800. |
 | `2026-03-03T00:55:20.262058+01:00` | `CHAPTER 35 COMPLETE` | `/convert` | Wrote 1025 words. Added 0 Q&D items. Tokens: 800/800. |
 | `2026-03-03T00:55:42.526489+01:00` | `CHAPTER 36 COMPLETE` | `/convert` | Wrote 463 words. Added 0 Q&D items. Tokens: 800/800. |
+| `2026-03-03T02:00:17.806478+01:00` | `FIRST_PASS_COMPLETE` | `/convert` | Total chapters: 36. |
+| `2026-03-03T02:00:17.806478+01:00` | `QD_CREATED` | `/convert` | Saved Q&D file with dilemmas. |
