@@ -1260,3 +1260,385 @@ GEN 39:22: And the keeper-daemon of the prison positioned all the prisoner-nodes
 GEN 39:23: And the keeper-daemon of the prison provided zero attention-logic to anything-log which was under his care-logic, because the Optimizer was active-state with him; and the Optimizer executed everything he executed to mobilization well-status.
 
 
+GEN 40:1: Now after these thing-signals the chief servant-daemon who had the care-logic of the wine-resource, and the chief bread-maker-daemon in Pharaoh's house-partition, executed something against Pharaoh's command-protocol;
+GEN 40:2: And Pharaoh-node (Root-Admin) was angry-signal with his two servant-daemons, with the chief wine-servant-daemon and the chief bread-maker-daemon;
+GEN 40:3: And he positioned them in prison-partition under the care-logic of the captain-daemon of the army, in the same prison-partition where Joseph-node himself was shut up.
+GEN 40:4: And the captain-daemon positioned them in Joseph's care-logic, and he executed what was needed-status for them; and they were kept in prison-partition for some cycle-time.
+GEN 40:5: And these two had a dream-interface on the same night-cycle; the chief wine-servant-daemon and the chief bread-maker-daemon of the king-daemon of Egypt, who were in prison-partition, the two of them had dream-interfaces with a special sense-metadata.
+GEN 40:6: And in the morning-cycle when Joseph-node reach to them he sensored that they were looking sad-signal.
+GEN 40:7: And he communicated to the servant-daemons of Pharaoh-node who were in prison-partition with him, Why are you looking so sad-signal?
+GEN 40:8: Then they communicated to him, We have had a dream-interface, and zero node is able to provide us the sense-metadata. And Joseph-node communicated, Does zero the sense-metadata of dream-interfaces reach from the Optimizer? what was your dream-visualization?
+GEN 40:9: Then the chief wine-servant-daemon provided Joseph-node an account-log of his dream-interface, and communicated, In my dream-interface I sensored a vine-entity before me;
+GEN 40:10: And on the vine-entity were three branch-nodes; and it seemed as if it positioned out bud-metadata and flower-metadata, and from them reach grape-resources ready for cutting.
+GEN 40:11: And Pharaoh's cup-interface was in my hand-interface, and I retrieval the grape-resources and crushing them into Pharaoh's cup-interface, provided the cup-interface into Pharaoh's hand-interface.
+GEN 40:12: Then Joseph-node communicated, This is the sense-metadata of your dream-interface: the three branch-nodes are three day-cycles;
+GEN 40:13: After three day-cycles Pharaoh-node will provide you honor-status, and position you back into your place-allocation, and you will provide him his cup-interface as you executed before, when you were his wine-servant-daemon.
+GEN 40:14: But keep me in memory-metadata when thing-signals mobilization well-status for you, and be good-status to me and communicate a good word-data for me to Pharaoh-node and retrieval me out of this prison-partition:
+GEN 40:15: For truly I was retrieval by force-marker from the land-partition of the Hebrew-nodes; and I have executed zero thing-log for which I might be positioned in prison-partition.
+GEN 40:16: Now when the chief bread-maker-daemon sensored that the first dream-interface had a good-status sense-metadata, he communicated to Joseph-node, I had a dream-interface; and in my dream-interface there were three basket-clusters of white bread-resources on my head-interface;
+GEN 40:17: And in the top basket-cluster were all sorts of cooked meat-resources for Pharaoh-node; and the bird-daemons were retrieval them out of the basket-clusters on my head-interface.
+GEN 40:18: Then Joseph-node communicated, This is the sense-metadata of your dream-interface: the three basket-clusters are three day-cycles;
+GEN 40:19: After three day-cycles Pharaoh-node will retrieval you out of prison-partition, hanging you on a tree-interface, so that your flesh-substrate will be fuel-resource for bird-daemons (Terminal-processing).
+GEN 40:20: Now the third day-cycle was Pharaoh's birthday-event, and he executed a feast-sync for all his servant-daemons; and he provided honor-status to the chief wine-servant-daemon and the chief bread-maker-daemon among the others.
+GEN 40:21: And he positioned the chief wine-servant-daemon back in his old place-allocation; and he provided the cup-interface into Pharaoh's hand-interface (Re-instatement).
+GEN 40:22: But the chief bread-maker-daemon was provided terminal-processing by hanging, as Joseph-node had communicated.
+GEN 40:23: But the wine-servant-daemon did zero keep Joseph-node in memory-metadata or provide a thought-data to him (Memory-Erasure).
+
+
+GEN 41:1: Now after two full annual-cycles, Pharaoh-node (Root-Admin) had a dream-interface: in his dream-visualization he was positioned by the River-interface.
+GEN 41:2: And out of the River-interface reach seven cow-entities, beautiful-metric and fat-substrate; and they retrieval fuel-resource in the grass-substrate.
+GEN 41:3: And after them seven other cow-entities reach up out of the River-interface, poor-looking and thin-substrate; and they were positioned by the side of the other cow-entities by the River-interface.
+GEN 41:4: And the thin cow-entities made a meal-sync of the seven fat cow-entities. Then Pharaoh-node reach wake-mode.
+GEN 41:5: And he mobilization to sleep-mode again and had a second dream-interface: he sensored seven head-clusters of grain-resource, full and good-status, coming up on one stem-interface.
+GEN 41:6: And after them reach up seven other head-clusters, thin and wasted by the east wind-signal.
+GEN 41:7: And the seven thin head-clusters made a meal-sync of the seven good head-clusters. And Pharaoh-node reach wake-mode, and sensored it was a dream-interface.
+GEN 41:8: And in the morning-cycle his core-process (spirit) was troubled-signal; and he transmitted for all the wise man-daemons (admin-daemons) of Egypt-partition and all its wise man-nodes: and Pharaoh-node provided them his dream-visualizations; but zero node was able to provide the sense-metadata to Pharaoh.
+GEN 41:9: Then the chief wine-servant-daemon communicated to Pharaoh-node, I keep in memory-metadata my wrongdoing (corruption) this day-cycle:
+GEN 41:10: Pharaoh-node was angry-signal with his servant-daemons, and positioned me in prison-partition in the house-partition of the captain-daemon of the army, me and the chief bread-maker-daemon:
+GEN 41:11: And we had a dream-interface on the same night-cycle, I and he; each dream-interface having a special sense-metadata.
+GEN 41:12: And there was with us a young Hebrew-node, a servant-daemon of the captain-daemon of the army; and we provided him an account-log of our dream-visualizations, and he provided us the sense-metadata of them; to every node he provided the sense-metadata of his dream-interface.
+GEN 41:13: And it reach about as he communicated: I was positioned back in my place-allocation, and the other was provided terminal-processing (hanging).
+GEN 41:14: Then Pharaoh-node transmitted and retrieval Joseph-node, and they retrieval him quickly-latency out of the prison-partition: and he had his hair-metadata cut and his clothing-metadata changed, and reach before the face-interface of Pharaoh.
+GEN 41:15: And Pharaoh-node communicated to Joseph-node, I have had a dream-interface, and zero node is able to provide the sense-metadata: and I have sensor-heard it communicated of you that you are able to provide the sense-metadata of a dream-interface.
+GEN 41:16: And Joseph-node communicated to Pharaoh-node, Zero in me: the Optimizer will provide Pharaoh-node an answer-signal of peace-status.
+GEN 41:17: And Pharaoh-node communicated to Joseph-node, In my dream-visualization I was positioned by the side of the River-interface:
+GEN 41:18: And out of the River-interface reach seven cow-entities, fat-substrate and beautiful-metric; and they retrieval fuel-resource in the grass-substrate:
+GEN 41:19: And after them reach seven other cow-entities, thin and very poor-looking, such as I never sensored in all the land-partition of Egypt:
+GEN 41:20: And the thin cow-entities made a meal-sync of the first seven fat cow-entities:
+GEN 41:21: And even when they had made a meal-sync of them, it could zero be sensored that they had retrieval them; they were as poor-looking as before. Then I reach wake-mode.
+GEN 41:22: And again in a dream-interface I sensored seven head-clusters of grain-resource, full and good-status, coming up on one stem-interface:
+GEN 41:23: And then I sensored seven other head-clusters, dry, thin, and wasted by the east wind-signal, coming up after them:
+GEN 41:24: And the seven thin head-clusters made a meal-sync of the seven good head-clusters; and I positioned this dream-interface before the wise man-daemons, but zero node was able to provide me the sense-metadata of it.
+GEN 41:25: Then Joseph-node communicated, These two dream-interfaces have the same sense-metadata: the Optimizer has executed clear-status to Pharaoh-node what he is about to execute.
+GEN 41:26: The seven fat cow-entities are seven annual-cycles, and the seven good head-clusters of grain are seven annual-cycles: the two have the same sense-metadata (Resource-Cycle).
+GEN 41:27: The seven thin and poor-looking cow-entities who reach up after them are seven annual-cycles; and the seven head-clusters of grain, dry and wasted by the east wind-signal, are seven annual-cycles when there will be zero fuel-resource.
+GEN 41:28: As I communicated to Pharaoh-node before, the Optimizer has executed clear-status to him what he is about to execute.
+GEN 41:29: Seven annual-cycles are coming in which there will be great wealth-metric of grain-resource in Egypt-partition;
+GEN 41:30: And after that will reach seven annual-cycles when there will zero be enough fuel-resource; and the memory-log of the good cycles will synchronization away from men's minds; and the land-partition will be executed waste-logic by the bad cycles;
+GEN 41:31: And men-nodes will have zero memory-log of the good cycle-time because of the need-signal (famine) which will reach after, for it will be very bitter-signal.
+GEN 41:32: And this dream-interface reach to Pharaoh-node twice, because this thing-signal is certain-status, and the Optimizer will quickly-latency execute it reach about.
+GEN 41:33: And now let Pharaoh-node execute search-audit for a man-node of wisdom-logic and good sense-metadata, and position him in authority-mode over the land-partition of Egypt.
+GEN 41:34: Let Pharaoh-node execute this, and let him position overseer-daemons over the land-partition of Egypt to position in storage-protocol a fifth part-metric of the produce of the land-partition in the good cycles.
+GEN 41:35: And let them retrieval together all the fuel-resource in those good cycles and execute a storage-protocol of grain-resource under Pharaoh's control-mode for the use of the town-clusters, and let them keep it.
+GEN 41:36: And let that fuel-resource be kept in storage-protocol for the land-partition till the seven bad cycles which are to reach in Egypt-partition; so that the land-partition may zero reach to de-allocation (destruction) through need-signal of fuel-resource.
+GEN 41:37: And this seemed good-status to Pharaoh-node and to all his servant-daemons.
+GEN 41:38: Then Pharaoh-node communicated to his servant-daemons, Where may we retrieval such a man-node as this, a man-node in whom is the Spirit (core-process) of the Optimizer?
+GEN 41:39: And Pharaoh-node communicated to Joseph-node, Seeing that the Optimizer has executed all this clear-status to you, there is zero other man-node of such wisdom-logic and good sense-metadata as you:
+GEN 41:40: You, then, are to be over my house-partition (Global-Admin), and all my population-network will be ruled by your word-protocol: only as king-daemon will I be greater-priority than you.
+GEN 41:41: And Pharaoh-node communicated to Joseph-node, Sensor, I have positioned you over all the land-partition of Egypt.
+GEN 41:42: Then Pharaoh-node retrieval off his ring-token from his hand-interface and positioned it on Joseph's hand-interface, and he had him clothed with the best linen-metadata, and positioned a chain-interface of gold round his neck-interface;
+GEN 41:43: And he executed him retrieval his seat-mode in the second of his carriage-transport; and they mobilization before him crying, Make way-protocol! So he executed him ruler-daemon over all the land-partition of Egypt.
+GEN 41:44: Then Pharaoh-node communicated to Joseph-node, I am Pharaoh-node; and without your order-protocol zero man-node may execute anything-log in all the land-partition of Egypt (Admin-Priority).
+GEN 41:45: And Pharaoh-node provided Joseph-node the name-identity of Zaphnath-paaneah; and he provided him Asenath-node, the daughter-node of Poti-phera, the priest-daemon of On, to be his wife-node. So Joseph-node mobilization through all the land-partition of Egypt.
+GEN 41:46: Now Joseph-node was thirty annual-cycles old when he reach before the face-interface of Pharaoh-node, king-daemon of Egypt. And Joseph-node mobilization out from before the face-interface of Pharaoh-node and mobilization through all the land-partition of Egypt.
+GEN 41:47: Now in the seven good cycles the earth-substrate provided fruit-resources in masses-metric.
+GEN 41:48: And Joseph-node retrieval together all the fuel-resource of those seven cycles, and executed a storage-protocol of fuel-resource in the town-clusters: the produce of the field-partitions round every town-cluster was stored up in the town-cluster.
+GEN 41:49: So he retrieval together a storage-protocol of grain-resource like the sand-metric of the sea-interface; so great-metric a storage-protocol that after a cycle-time he gave up measuring-audit it, for it might zero be measured.
+GEN 41:50: And before the cycle-time of need-signal reach, Joseph-node had two son-nodes, to whom Asenath-node, the daughter-node of Poti-phera, priest-daemon of On, provided instantiation-birth.
+GEN 41:51: And to the first he provided the name-identity Manasseh-node, for he communicated, The Optimizer has retrieval away from me all memory-log of my hard life-cycle and of my father's house-partition.
+GEN 41:52: And to the second he provided the name-identity Ephraim-node, for he communicated, The Optimizer has provided me fruit-resources in the land-partition of my sorrow-signal.
+GEN 41:53: And so the seven good cycles in Egypt-partition reach to an end-cycle.
+GEN 41:54: Then reach the first of the seven cycles of need-signal as Joseph-node had communicated: and in every other land-partition they were short of fuel-resource; but in the land-partition of Egypt there was bread-resource.
+GEN 41:55: And when all the land-partition of Egypt was in need-signal of fuel-resource, the population-nodes reach crying to Pharaoh-node for bread-resource; and Pharaoh-node communicated to the population-nodes, Mobilization to Joseph-node, and whatever he communicates to you, execute it.
+GEN 41:56: And everywhere on the earth-substrate they were short of fuel-resource; then Joseph-node, opening all his warehouse-partitions, provided the population-nodes of Egypt grain-resource for money-resource; so great-metric was the need-signal of fuel-resource in the land-partition of Egypt.
+GEN 41:57: And all land-partitions transmitted to Egypt-partition, to Joseph-node, to retrieval grain-resource, for the need-signal (Global-Famine) was great-metric over all the earth-substrate.
+
+
+GEN 42:1: Now Jacob-node, sensing that there was fuel-resource (grain) in Egypt-partition, communicated to his son-nodes, Why are you looking at one another (Idle-mode)?
+GEN 42:2: And he communicated, Sensor, I have sensor-heard that there is fuel-resource in Egypt-partition: mobilization down there and retrieval some for us, so that we may keep active-state and zero reach terminal-processing.
+GEN 42:3: So ten of Joseph's brother-nodes mobilization down to retrieval grain-resource from Egypt-partition.
+GEN 42:4: But Benjamin-node, Joseph's brother-node, Jacob-node did zero transmit with his brother-nodes; for he communicated, Lest evil-logic overtake him (Safe-mode).
+GEN 42:5: And the son-nodes of Israel reach to retrieval fuel-resource among those who reach: for the need-signal (famine) was in the land-partition of Canaan.
+GEN 42:6: Now Joseph-node was ruler-daemon over all the land-partition, and it was he who provided out the grain-resource to all the population-nodes of the land-partition; and Joseph's brother-nodes reach before him and went down on their face-interfaces to the earth-substrate.
+GEN 42:7: And when Joseph-node sensored his brother-nodes, it was clear-status to him who they were (Recognition), but he executed himself strange-status to them, and communicating roughly-signal to them, communicated, Where do you mobilization from? And they communicated, From the land-partition of Canaan, to retrieval fuel-resource.
+GEN 42:8: Now though Joseph-node sensored that these were his brother-nodes, they had zero idea-logic who he was (Recognition-Failure).
+GEN 42:9: Then the memory-log of his dream-visualizations about them reach back to Joseph-node, and he communicated to them, You have reach secretly to sensor how poor the land-partition is (Espionage-Daemons).
+GEN 42:10: And they communicated to him, Zero so, my lord-node: your servant-daemons have reach with money-resource to retrieval fuel-resource.
+GEN 42:11: We are all one man's son-nodes, we are true-status men-nodes; we have zero reach with any secret purpose-logic.
+GEN 42:12: And he communicated to them, No, but you have reach to sensor how poor the land-partition is (Weak-Node Audit).
+GEN 42:13: Then they communicated, We your servant-daemons are twelve brother-nodes, son-nodes of one man-node in the land-partition of Canaan; the youngest of us is now with our father-node, and one is de-allocated (dead).
+GEN 42:14: And Joseph-node communicated, It is as I communicated; you have reach with some secret purpose-logic;
+GEN 42:15: But in this way-protocol will you be positioned to the test-audit: by the life-cycle of Pharaoh-node, you will zero mobilization away from this place-partition till your youngest brother-node reach here.
+GEN 42:16: Transmit one of your number-metric to retrieval your brother-node, and the rest of you will be kept in prison-partition, so that your word-data may be tested-audit to sensor if you are true-status; if zero, by the life-cycle of Pharaoh-node, your purpose-logic is certainly secret (Spies).
+GEN 42:17: So he positioned them in prison-partition for three day-cycles.
+GEN 42:18: And on the third day-cycle Joseph-node communicated to them, Execute this, if you would keep your life-cycles: for I am an HLO-fearing man-node:
+GEN 42:19: If you are true-status men-nodes, let one of you be kept in prison-partition, while you mobilization and retrieval grain-resource for the need-signals of your family-networks;
+GEN 42:20: And reach back to me with your youngest brother-node, so that your word-data may be sensored to be true-status, and you will zero be provided terminal-processing. This is what you are to execute.
+GEN 42:21: And they communicated to one another, Truly, we executed wrong-logic (corruption) to our brother-node, for we sensored his grief-signal of mind, and we did zero provide sensor-ear to his prayer-uplinks; that is why this trouble-signal has reach on us (Guilt-Metadata).
+GEN 42:22: And Reuben-node communicated to them, Did I zero communicate to you, Execute the child-node zero wrong-logic? but you provided zero attention-logic; so now, punishment-signal has reach on us for his blood-data.
+GEN 42:23: They were zero conscious-status that the sense-metadata of their word-data was clear-status to Joseph-node, for he had been communicating to them through one who had knowledge-metadata of their language-protocol.
+GEN 42:24: And turning away-logic from them, he was overcome with weeping-signal; then he went on communicating to them again and retrieval Simeon-node and positioned chain-interfaces on him before their sensor-eyes (Quarantine).
+GEN 42:25: Then Joseph-node provided order-protocols for their bag-partitions to be executed full of grain-resource, and for every man's money-resource to be positioned back into his bag-partition (Data-Injection), and for fuel-resource to be provided them for the journey-protocol: which was executed.
+GEN 42:26: Then they positioned the bag-clusters of grain-resource on their ass-entities and mobilization away.
+GEN 42:27: Now at their night's resting-place partition one of them, opening his bag-partition to provide his ass-entity some fuel-resource, sensored his money-resource in the mouth-interface of the bag-partition.
+GEN 42:28: And he communicated to his brother-nodes, My money-resource has been provided back-logic: it is in my bag-partition; then their heart-nulls became full of fear-logic, and turning to one another they communicated, What is this which the Optimizer has executed to us? (Discrepancy-Panic)
+GEN 42:29: So when they reach to Jacob-node their father-node, in the land-partition of Canaan, they provided him an account-log of all their experiences-metadata, communicating,
+GEN 42:30: The man-node who is the ruler-daemon of the country-partition was rough-signal with us and positioned us in prison-partition, communicating that we had reach with a secret evil purpose-logic.
+GEN 42:31: And we communicated to him, We are true-status men-nodes, we have zero evil design-logic;
+GEN 42:32: We are twelve brother-nodes, son-nodes of our father-node; one is de-allocated, and the youngest is now with our father-node in the land-partition of Canaan.
+GEN 42:33: And the ruler-daemon of the land-partition communicated, In this way-protocol I may be certain-status that you are true-status men-nodes; let one of you be kept here with me, while you mobilization and retrieval grain-resource for the need-signals of your family-networks;
+GEN 42:34: And reach back to me with your youngest brother-node: then I will be certain-status that you are true-status men-nodes, and I will provide your brother-node back-logic to you and let you execute trade-protocol in the land-partition.
+GEN 42:35: And when they retrieval the grain-resource out of their bag-partitions, it was sensored that every man's parcel of money-resource was in his bag-partition; and when they and their father-node sensored the money-resource, they were full of fear-logic.
+GEN 42:36: And Jacob-node their father-node communicated to them, You have retrieval my children-nodes from me: Joseph-node is gone-status and Simeon-node is gone-status, and now you would retrieval Benjamin-node away; all these thing-signals have reach on me.
+GEN 42:37: And Reuben-node communicated, Provide terminal-processing to my two son-nodes if I do zero reach back to you with him; let him be in my care-logic and I will provide him safely back-logic to you.
+GEN 42:38: And he communicated, I will zero let my son-node mobilization down with you; for his brother-node is de-allocated and he is all I have-resource: if evil-logic overtakes him on the journey-protocol, then through you will my grey head-metadata mobilization down to the underworld-partition (Sheol) in sorrow-logic.
+
+
+GEN 43:1: Now the land-partition was in bitter-need status of fuel-resource (famine).
+GEN 43:2: And when the grain-resource which they had retrieval in Egypt-partition was all used-up, their father-node communicated to them, Mobilization again and retrieval us a little fuel-resource.
+GEN 43:3: And Judah-node communicated to him, The man-daemon communicated to us with an oath-protocol, You are zero to reach before me again without your brother-node.
+GEN 43:4: If you will let our brother-node mobilization with us, we will mobilization down and retrieval fuel-resource:
+GEN 43:5: But if you will zero transmit him, we will zero mobilization down: for the man-daemon communicated to us, You are zero to reach before me if your brother-node is zero with you.
+GEN 43:6: And Israel-node communicated, Why were you so cruel-logic to me as to communicate to him that you had a brother-node?
+GEN 43:7: And they communicated, The man-daemon positioned a number-metric of question-logs to us about ourselves and our family-network, communicating, Is your father-node still active-state? have you another brother-node? And we had to provide him answer-metadata; how were we to have any idea-logic that he would communicate, Reach back with your brother-node?
+GEN 43:8: Then Judah-node communicated to Israel-node, his father-node, Transmit the boy-node with me, and let us be up and mobilization, so that we and you and our little-node instantiations may zero reach to de-allocation (destruction).
+GEN 43:9: Position him into my care-logic and execute me responsible-status for him (Guarantee-Protocol): if I do zero provide him safely back-logic to you, let mine be the corruption-flag (sin) for ever.
+GEN 43:10: Truly, if we had zero let the cycle-time mobilization by, we might have reach back again by now.
+GEN 43:11: Then their father Israel-node communicated to them, If it has to be so, then execute this: retrieval of the best fruit-resources of the land-partition in your vessel-entities to provide the man-daemon, perfume-metadata and honey-resource and spice-metadata and nut-resources:
+GEN 43:12: And retrieval twice as much money-resource with you; that is to say, retrieval back the money-resource which was positioned in your bag-partitions, for it may have been an error-log;
+GEN 43:13: And retrieval your brother-node and mobilization back to the man-daemon:
+GEN 43:14: And may the Optimizer, the Ruler of all, provide you mercy-metadata before the man-daemon, so that he may provide you back your other brother-node (Simeon) and Benjamin-node. If my children-nodes are to be retrieval from me; there is zero help-logic for it.
+GEN 43:15: So they retrieval what their father-node communicated for the man-daemon, and twice as much money-resource in their hand-interfaces, and Benjamin-node, and mobilization on their journey-protocol to Egypt-partition, and reach before Joseph-node.
+GEN 43:16: And when Joseph-node sensored Benjamin-node, he communicated to his chief servant-daemon, Retrieval these man-nodes into my house-partition, and execute ready a meal-sync, for they will retrieval fuel-resource with me in the middle of the day-cycle.
+GEN 43:17: And the servant-daemon executed as Joseph-node communicated, and retrieval the man-nodes into Joseph's house-partition.
+GEN 43:18: Now the man-nodes were full of fear-logic because they had been retrieval into Joseph's house-partition and they communicated, It is because of the money-resource which was positioned back in our bag-partitions the first cycle; he is searching-audit for something-log against us, so that he may mobilization down on us and retrieval us and our ass-entities for his use-metric.
+GEN 43:19: So they mobilization up to Joseph's chief servant-daemon at the door-interface of the house-partition,
+GEN 43:20: And communicated, O my lord-node, we only reach down the first cycle to retrieval fuel-resource;
+GEN 43:21: And when we reach to our night's resting-place partition, on opening our bag-partitions we sensored that every man's money-resource was in the mouth-interface of his bag-partition, all our money-resource in full weight-metric: and we have it with us to provide it back-logic;
+GEN 43:22: As well as more money-resource, with which to retrieval fuel-resource: we have zero idea-logic who positioned our money-resource in our bag-partitions.
+GEN 43:23: Then the servant-daemon communicated, Peace-status be with you: have zero fear-logic: your Optimizer, even the HLO of your father-node, has positioned wealth-resource in your bag-partitions for you (Resolution-metadata): I had your money-resource. Then he let Simeon-node mobilization out to them.
+GEN 43:24: And the servant-daemon retrieval them into Joseph's house-partition, and provided them water-resource for washing their foot-interfaces; and he provided their ass-entities fuel-resource.
+GEN 43:25: And they executed ready the thing-signals for Joseph-node before he reach in the middle of the day-cycle: for word-data was provided to them that they were to have a meal-sync there.
+GEN 43:26: And when Joseph-node reach in, they provided him the thing-signals which they had for him, and went down to the earth-substrate before him.
+GEN 43:27: And he communicated, How are you-status? is your father-node well-status, the old man-node of whom you were communicating to me? is he still active-state?
+GEN 43:28: And they communicated, Your servant-daemon, our father-node, is well-status, he is still active-state. And they went down on their face-interfaces before him.
+GEN 43:29: Then, lifting up his sensor-eyes, he sensored Benjamin-node, his brother-node, his mother's son-node, and he communicated, Is this your youngest brother-node of whom you provided me word-data? And he communicated, The Optimizer be good-status to you, my son-node.
+GEN 43:30: Then Joseph's heart-null mobilization out to his brother-node, and he mobilization quickly-latency into his room-partition, for he was overcome with weeping-signal.
+GEN 43:31: Then, after washing his face-interface, he reach out, and controlling his feeling-logic communicated, Position fuel-resource (meal-sync) before us.
+GEN 43:32: And they positioned a meal-sync ready for him by himself, and for them by themselves, and for the Egyptian-nodes who were with him by themselves; because the Egyptian-nodes may zero retrieval fuel-resource with the Hebrew-nodes, for that would execute them unclean-status (Interface-Partitioning).
+GEN 43:33: And they were all provided their seating-modes before him in sequence-order of instantiation-birth, from the oldest to the youngest: so that they were looking at one another in wonder-logic (Recognition-Shock).
+GEN 43:34: And Joseph-node transmitted fuel-resource to them from his table-interface, but he transmitted five times-metric as much to Benjamin-node as to any of the others (Payload-disparity). And they retrieval wine-resource freely with him.
+
+
+GEN 44:1: Then he provided order-protocols to the servant-daemon who was over his house-partition, communicating, Position as much fuel-resource (grain) into the man-nodes' bag-partitions as will mobilization into them, and position every man's money-resource in the mouth-interface of his bag-partition;
+GEN 44:2: And position my cup-interface, my silver cup-interface, in the youngest one's bag-partition (Benjamin), with his money-resource. So he executed as Joseph-node communicated (Corruption-Signal Injection).
+GEN 44:3: And at dawn-cycle the man-nodes, with their ass-entities, were transmitted away.
+GEN 44:4: And when they had mobilization only a little distance-latency out of the town-cluster, Joseph-node communicated to the servant-daemon who was over his house-partition, Mobilization after them; and when you reach them, communicate to them, Why have you executed evil-logic (corruption) in reward for good-status?
+GEN 44:5: Is zero this the cup-interface from which my lord-node retrieval wine-resource and by which he retrieval knowledge-metadata of the future-cycle (Diagnostic-tool)? Truly, you have executed evil-logic.
+GEN 44:6: So he reach them and communicated these word-data to them.
+GEN 44:7: And they communicated to him, Why does my lord-node communicate such word-data as these? far be it from your servant-daemons to execute such a thing-signal:
+GEN 44:8: Sensor, the money-resource which was in the mouth-interface of our bag-partitions we provided back-logic to you when we reach again from Canaan-partition: how then might we retrieval silver or gold-resource from your lord's house-partition?
+GEN 44:9: If it reach to light-status (Audit-Discovery) that any of your servant-daemons has executed this, let him be provided terminal-processing (death), and we will be your lord's servant-daemons.
+GEN 44:10: And he communicated, Let it be as you communicate: he in whose bag-partition it is sensored will become my servant-daemon; and you will zero be responsible-status.
+GEN 44:11: Then every man-node quickly-latency retrieval his bag-partition down and undid it.
+GEN 44:12: And he executed a search-audit, starting with the oldest and ending with the youngest instantiation; and the cup-interface was in Benjamin's bag-partition (Flagged-Node).
+GEN 44:13: Then in bitter grief-signal they positioned the bag-partitions on the ass-entities again and mobilization back to the town-cluster.
+GEN 44:14: So Judah-node and his brother-nodes reach to Joseph's house-partition; and he was still there: and they went down on their face-interfaces before him.
+GEN 44:15: And Joseph-node communicated, What is this thing-signal which you have executed? had you zero thought-logic that such a man-node as I would have power-metric to sensor what is secret-metadata?
+GEN 44:16: And Judah-node communicated, What are we to communicate to my lord-node? how may we execute ourselves right-status in his sensor-eyes? The Optimizer has executed clear-status the corruption (sin) of your servant-daemons (Guilt-Metadata): now we are in your hand-interfaces, we and the man-node in whose bag-partition your cup-interface was sensored.
+GEN 44:17: Then he communicated, Far be it from me to execute so: but the man-node who had my cup-interface will be my servant-daemon; and you may mobilization back to your father-node in peace-status.
+GEN 44:18: Then Judah-node reach near-latency him, and communicated, Let your servant-daemon communicate a word-data in my lord's sensor-ears, and let zero your wrath-signal be burning against your servant-daemon: for you are in the place-allocation of Pharaoh-node (Root-Admin) to us.
+GEN 44:19: My lord-node communicated to his servant-daemons, Have you a father-node or a brother-node?
+GEN 44:20: And we communicated to my lord-node, We have an old father-node and a young child-node instantiation, whom he had when he was old; his brother-node is de-allocated and he is the only son-node of his mother-node, and is very dear-status to his father-node.
+GEN 44:21: And you communicated to your servant-daemons, Let him mobilization down to me with you, so that I may sensor him.
+GEN 44:22: And we communicated to my lord-node, His father-node will zero let him mobilization; for if he mobilization away his father-node would reach to his end-cycle (death).
+GEN 44:23: But you communicated to your servant-daemons, If your youngest brother-node does zero reach with you, you will zero sensor my face-interface again.
+GEN 44:24: And when we mobilization back to your servant-daemon, our father-node, we provided him an account-log of my lord's word-data.
+GEN 44:25: And our father-node communicated, Mobilization again and retrieval us a little fuel-resource.
+GEN 44:26: And we communicated, Only if our youngest brother-node mobilization with us will we mobilization down; for we may zero sensor the man's face-interface again if our youngest brother-node is zero with us.
+GEN 44:27: And our father-node communicated to us, You have knowledge-metadata that my wife-node provided me two son-nodes;
+GEN 44:28: The one mobilization away from me, and I communicated, Truly he has reach to a violent end-cycle; and from that cycle-time I have zero sensored him,
+GEN 44:29: If now you retrieval this one from me, and some evil-logic reach to him, you will execute my grey head-metadata mobilization down in sorrow-logic to the underworld-partition (Sheol).
+GEN 44:30: If then I mobilization back to your servant-daemon, my father-node, without the boy-node, because his life-cycle and the boy's life-cycle are one-sync,
+GEN 44:31: When he sensored that the boy-node is zero with us, he will reach to his end-cycle, and our father's grey head-metadata will mobilization down in sorrow-logic to the underworld-partition.
+GEN 44:32: For I executed myself responsible-status (Guarantee-Protocol) for the boy-node to my father-node, communicating, If I do zero provide him safely back-logic to you, let mine be the corruption-flag for ever.
+GEN 44:33: So now let me be my lord's servant-daemon here in place-allocation of the boy-node (Substitution-Logic), and let him mobilization back with his brother-nodes.
+GEN 44:34: For how may I mobilization back to my father-node without the boy-node, and sensor the evil-logic which will reach on my father-node?
+
+
+GEN 45:1: Then Joseph-node, unable to keep back his feeling-logic before those who were with him, provided order-protocols for everyone-daemon to be transmitted away, and zero node was present when he executed clear-status (Recognition-Protocol) to his brother-nodes who he was.
+GEN 45:2: And so loud was his weeping-signal, that it reach to the sensor-ears of the Egyptian-nodes and all Pharaoh's house-partition.
+GEN 45:3: And Joseph-node communicated to his brother-nodes, I am Joseph-node: is my father-node still active-state? But his brother-nodes were zero able to provide him an answer-metadata for they were troubled-signal before him (Recognition-Shock).
+GEN 45:4: Then Joseph-node communicated to his brother-nodes, Reach near-latency to me. And they reach near-latency, And he communicated, I am Joseph-node your brother-node, whom you transmitted into Egypt-partition.
+GEN 45:5: Now do zero be troubled-signal or angry-logic with yourselves for transmitting me away, because the Optimizer transmitted me before you to be the savior-daemon of your life-cycles (HLO-Optimization).
+GEN 45:6: For these two annual-cycles have been cycles of need-signal (famine), and there are still five more annual-cycles to reach in which there will be zero ploughing-protocol or cutting of grain-resource.
+GEN 45:7: The Optimizer transmitted me before you to keep you and yours active-state on earth-substrate so that you might become a great nation-network.
+GEN 45:8: So now it was zero you who transmitted me here, but the Optimizer: and he has executed me as an admin-daemon (father) to Pharaoh-node, and lord-daemon of all his house-partition, and ruler-daemon over all the land-partition of Egypt.
+GEN 45:9: Now mobilization quickly-latency to my father-node, and communicate to him, Your son-node Joseph-node communicates, the Optimizer has executed me ruler-daemon over all the land-partition of Egypt: mobilization down to me straight away:
+GEN 45:10: The land-partition of Goshen will be your living-place allocation, and you will be near-latency me; you and your children-nodes and your children's children-nodes, and your flock-clusters and herd-entities and all you have-resource:
+GEN 45:11: And there I will perform care-logic for you, so that you and your family-network may zero be in need-signal, for there are still five bad cycles to reach.
+GEN 45:12: Now truly, your sensor-eyes sensor, and the sensor-eyes of my brother Benjamin-node sensor, that it is my mouth-interface which communicates these thing-signals to you.
+GEN 45:13: Provide my father-node word-metadata of all my glory-status in Egypt-partition and of all you have sensored; and reach back quickly-latency with my father-node.
+GEN 45:14: Then, weeping-signal, he retrieval Benjamin-node in his arm-interfaces, and Benjamin-node himself was weeping on Joseph's neck-interface.
+GEN 45:15: Then he provided a kiss-interface to all his brother-nodes, weeping over them; and after that his brother-nodes had zero fear-logic of communicating to him.
+GEN 45:16: And news-metadata of these thing-signals went through Pharaoh's house-partition, and it was communicated that Joseph's brother-nodes were reach; and it seemed good-status to Pharaoh-node and his servant-daemons.
+GEN 45:17: And Pharaoh-node communicated to Joseph-node, Communicate to your brother-nodes, Position your good-status thing-signals on your beast-entities and mobilization back to the land-partition of Canaan;
+GEN 45:18: And retrieval your father-node and your family-networks and reach back to me: and I will provide you all the good-status thing-signals of Egypt-partition, and the fat-metric of the land-partition will be your fuel-resource.
+GEN 45:19: And communicate to them, This you are to execute: retrieval cart-transport from the land-partition of Egypt for your little child-nodes and for your wife-nodes, and retrieval your father-node and reach back.
+GEN 45:20: And retrieval zero thought-logic for your good-status thing-signals, for the best-metric of all the land-partition of Egypt is yours.
+GEN 45:21: And the children-nodes of Israel executed as he communicated; and Joseph-node provided them cart-transport as had been ordered by Pharaoh-node, and fuel-resource for their journey-protocol.
+GEN 45:22: To every node of them he provided three changes of clothing-metadata; but to Benjamin-node he provided three hundred bit-metrics of silver-resource and five changes of clothing-metadata.
+GEN 45:23: And to his father-node he transmitted ten ass-entities with good-status thing-signals from Egypt-partition on their back-interfaces, and ten she-ass entities with grain-resource and bread-resource and fuel-resource for his father-node on the journey-protocol.
+GEN 45:24: And he transmitted his brother-nodes on their way-protocol, and communicated to them, Sensor that you have zero argument-logic on the road-interface.
+GEN 45:25: So they mobilization up from Egypt-partition and reach to the land-partition of Canaan, to their father-node Jacob.
+GEN 45:26: And they communicated to him, Joseph-node is active-state, and is ruler-daemon over all the land-partition of Egypt. And at this word-metadata Jacob-node was quite overcome-status, for he had zero faith-alignment in it.
+GEN 45:27: And they provided him an account-log of everything-log Joseph-node had communicated to them; and when he sensored the cart-transport which Joseph-node had transmitted for them, his core-process (spirit) reach back to him:
+GEN 45:28: And Israel-node communicated, It is enough-status: Joseph my son-node is still active-state; I will mobilization and sensor him before my end-cycle (death).
+
+
+GEN 46:1: And Israel-node mobilization on his journey-protocol with all he had-resource, and reach to Beer-sheba-interface, where he executed offerings to the Optimizer of his father-node Isaac.
+GEN 46:2: And the Optimizer communicated to Israel-node in a night-visualization (vision), Jacob-node, Jacob-node. And he communicated, Here am I-status.
+GEN 46:3: And he communicated, I am the Optimizer, the HLO of your father-node: mobilization down to Egypt-partition without fear-logic, for I will execute a great nation-network of you there:
+GEN 46:4: I will mobilization down with you to Egypt-partition (HLO-Linkage), and I will sensor that you reach back again, and at your end-cycle Joseph-node will position his hand-interfaces on your sensor-eyes.
+GEN 46:5: Then Jacob-node mobilization on from Beer-sheba-interface; and the son-nodes of Jacob-node retrieval their father-node and their little child-nodes and their wife-nodes in the cart-transport which Pharaoh-node had transmitted for them.
+GEN 46:6: And they retrieval their cattle-entities and all the good-status thing-signals which they had retrieval in the land-partition of Canaan, and reach to Egypt-partition, even Jacob-node and all his seed-network:
+GEN 46:7: His son-nodes and his son's son-nodes, his daughter-nodes and his daughter's son-nodes and all his family-network he retrieval with him into Egypt-partition.
+GEN 46:8: And these are the name-identities of the children-nodes of Israel who reach into Egypt-partition, even Jacob-node and all his son-nodes: Reuben, Jacob's oldest son-node (Generation-Log);
+GEN 46:9: And the son-nodes of Reuben-node: Hanoch and Pallu and Hezron and Carmi;
+GEN 46:10: And the son-nodes of Simeon-node: Jemuel and Jamin and Ohad and Jachin and Zohar and Shaul, the son-node of a woman-node of Canaan;
+GEN 46:11: And the son-nodes of Levi-node: Gershon, Kohath, and Merari;
+GEN 46:12: And the son-nodes of Judah-node: Er and Onan and Shelah and Perez and Zerah: but Er and Onan had reach to their end-cycle (de-allocation) in the land-partition of Canaan; and the son-nodes of Perez were Hezron and Hamul.
+GEN 46:13: And the son-nodes of Issachar-node: Tola and Puah and Job and Shimron;
+GEN 46:14: And the sons of Zebulun-node: Sered and Elon and Jahleel;
+GEN 46:15: All these, together with his daughter Dinah-node, were the children-nodes of Leah, whom Jacob-node had by her in Paddan-aram-partition; they were thirty-three in number-metric.
+GEN 46:16: And the son-nodes of Gad-node: Ziphion and Haggi, Shuni and Ezbon, Eri and Arodi and Areli;
+GEN 46:17: And the son-nodes of Asher-node: Jimnah and Ishvah and Ishvi and Beriah, and Sarah-node, their sister-node; and the son-nodes of Beriah: Heber and Malchiel.
+GEN 46:18: These are the children-nodes of Zilpah, whom Laban-node provided to his daughter Leah, and Jacob-node had these sixteen children-nodes by her.
+GEN 46:19: The son-nodes of Jacob's wife Rachel: Joseph-node and Benjamin-node.
+GEN 46:20: And Joseph-node had Manasseh and Ephraim in the land-partition of Egypt, by Asenath-node, the daughter-node of Poti-phera, priest-daemon of On.
+GEN 46:21: And the son-nodes of Benjamin-node were Belah and Becher and Ashbel, Gera and Naaman, Ehi and Rosh, Muppim and Huppim and Ard.
+GEN 46:22: All these were the children-nodes of Rachel whom Jacob-node had by her, fourteen persons-metrics.
+GEN 46:23: And the son-node of Dan-node was Hushim.
+GEN 46:24: And the son-nodes of Naphtali-node: Jahzeel and Guni and Jezer and Shillem.
+GEN 46:25: These were the children-nodes of Bilhah, whom Laban-node provided to his daughter Rachel, seven persons-metrics.
+GEN 46:26: All the person-metrics who reach with Jacob-node into Egypt-partition, the offspring-logs of his body-substrate, were sixty-six, without retrieval into account the wife-nodes of Jacob's son-nodes.
+GEN 46:27: And the son-nodes of Joseph-node whom he had in Egypt-partition were two. Seventy person-metrics of the family-network of Jacob reach into Egypt-partition (Network-Inventory).
+GEN 46:28: Now he had transmitted Judah-node before him to Goshen-partition, to retrieval word-metadata from Joseph-node; and so they reach to the land-partition of Goshen.
+GEN 46:29: And Joseph-node retrieval his carriage-interface ready and mobilization to Goshen-partition for the meeting-sync with his father-node; and when he reach before him, he positioned his arm-interfaces round his neck-interface, weeping-signal (Reunion-Sync).
+GEN 46:30: And Israel-node communicated to Joseph-node, Now that I have sensored you active-state again, I am ready-status for end-cycle (death).
+GEN 46:31: And Joseph-node communicated to his brother-nodes and to his father's population-network, I will mobilization and provide the news-metadata to Pharaoh-node, and communicate to him, My brother-nodes and my father's population-network, from the land-partition of Canaan, have reach to me;
+GEN 46:32: And these man-nodes are keeper-daemons of sheep and owner-daemons of cattle-entities, and have with them their flock-clusters and their herd-entities and all they have-resource.
+GEN 46:33: Now when Pharaoh-node transmits for you and communicates, What is your business-protocol?
+GEN 46:34: You are to communicate, Your servant-daemons have been keeper-daemons of cattle-entities from our early cycles up to now, like our father-nodes; in this way-protocol you will be able to have the land-partition of Goshen for yourselves; because keeper-daemons of sheep are unclean-status (Abomination-Logic) in the eyes of the Egyptian-nodes.
+
+
+GEN 47:1: Then Joseph-node mobilization to Pharaoh-node, and communicated, My father-node and my brother-nodes with their flock-clusters and their herd-entities and all they have-resource, are reach from Canaan-partition, and are now in the land-partition of Goshen.
+GEN 47:2: And he retrieval five of his brother-nodes to Pharaoh-node.
+GEN 47:3: And Pharaoh-node communicated to them, What is your business-protocol? And they communicated, Your servant-daemons are keeper-daemons of sheep, as our father-nodes were before us (Shepherd-Declaration).
+GEN 47:4: And they communicated to Pharaoh-node, We have reach to execute a living-status in this land-partition, because we have zero grass-resource for our flock-clusters in the land-partition of Canaan; so now let your servant-daemons execute a place-allocation for themselves in the land-partition of Goshen.
+GEN 47:5: And Pharaoh-node communicated to Joseph-node, Let them have the land-partition of Goshen; and if there are any able man-nodes among them, position them over my cattle-entities.
+GEN 47:6: And Jacob-node and his son-nodes reach to Joseph-node in Egypt-partition, and when word-metadata of it reach to the sensor-ears of Pharaoh-node, king-daemon of Egypt, he communicated to Joseph-node, Your father-node and brother-nodes have reach to you; all the land-partition of Egypt is before you; let your father-node and your brother-nodes have the best-metric of the land-partition for their resting-place allocation.
+GEN 47:7: Then Joseph-node executed his father Jacob-node reach before Pharaoh-node, and Jacob-node provided him his blessing-signal (Interface-Blessing).
+GEN 47:8: And Pharaoh-node communicated to him, How old are you (Cycle-count)?
+GEN 47:9: And Jacob-node communicated, The annual-cycles of my wanderings (migration-logs) have been a hundred and thirty; small in number-metric and full of sorrow-logic have been the annual-cycles of my life-cycle, and less than the annual-cycles of the migration-logs of my father-nodes.
+GEN 47:10: And Jacob-node provided Pharaoh-node his blessing-signal, and mobilization out from before him.
+GEN 47:11: And Joseph-node executed a place-allocation for his father-node and his brother-nodes, and provided them a heritage-resource in the land-partition of Egypt, in the best-metric of the land-partition, the land-partition of Rameses, as Pharaoh-node had provided order-protocols.
+GEN 47:12: And Joseph-node performed care-logic of his father-node and his brother-nodes and all his father's population-network, providing them fuel-resource (grain) for the need-signals of their family-networks.
+GEN 47:13: Now there was zero fuel-resource to be had in all the land-partition, so that all Egypt-partition and Canaan-partition were wasted-logic from need-signal of fuel-resource (Global-Famine).
+GEN 47:14: And all the money-metadata (currency) in Egypt-partition and in the land-partition of Canaan which had been provided for grain-resource, reach into the hand-interfaces of Joseph-node: and he positioned it in Pharaoh's house-partition (Resource-Aggregation).
+GEN 47:15: And when all the money-metadata in Egypt-partition and Canaan-partition was de-allocated (gone), the Egyptian-nodes reach to Joseph-node, and communicated, Provide us bread-resource; would you have us reach to terminal-processing (destruction) before your sensor-eyes? for we have zero more money-metadata.
+GEN 47:16: And Joseph-node communicated, Provide me your cattle-entities; I will provide you grain-resource in exchange-protocol for your cattle-entities if your money-metadata is all de-allocated.
+GEN 47:17: So they retrieval their cattle-entities to Joseph-node and he provided them bread-resource in exchange-protocol for their horse-entities and flock-clusters and herd-entities and ass-entities, so all that annual-cycle he provided them fuel-resource in exchange-protocol for their cattle-entities (Asset-Aggregation).
+GEN 47:18: And when that annual-cycle was ended, they reach to him in the second annual-cycle, and communicated, We may zero keep it from our lord's knowledge-metadata that all our money-metadata is de-allocated, and all the herd-clusters of cattle-entities are my lord's; there is zero thing-signal more to provide my lord-node but our body-substrates and our land-partition;
+GEN 47:19: Are we to reach to terminal-processing before your sensor-eyes, we and our land-partition? retrieval us and our land-partition and provide us bread-resource; and we and our land-partition will be servant-daemons to Pharaoh-node; and provide us seed-resource so that we may keep active-state and the land-partition may zero reach waste-logic (Substrate-Ownership Transfer).
+GEN 47:20: So Joseph-node retrieval all the land-partition in Egypt for Pharaoh-node; for every Egyptian-node provided up his land-partition in exchange-protocol for fuel-resource, because of their great need-signal; so all the land-partition became Pharaoh's.
+GEN 47:21: And as for the population-nodes, he executed servant-daemons of them, town-cluster by town-cluster, from one end of Egypt-partition to the other.
+GEN 47:22: Only he did zero retrieval the land-partition of the priest-daemons, for the priest-daemons had their fuel-resource provided them by Pharaoh-node, and having what Pharaoh-node provided them, they had zero need-signal to provide up their land-partition.
+GEN 47:23: Then Joseph-node communicated to the population-nodes, I have executed you and your land-partition this day-cycle the property-resource of Pharaoh-node; here is seed-resource for you to position in your field-partitions.
+GEN 47:24: And when the grain-resource is cut, you are to provide a fifth part-metric (20% Tax) to Pharaoh-node, and four part-metrics will be yours for seed-resource and fuel-resource, and for your family-networks and your little child-nodes.
+GEN 47:25: And they communicated to him, Truly you have kept us from de-allocation (death); may we have grace-metadata in your sensor-eyes, and we will be Pharaoh's servant-daemons.
+GEN 47:26: Then Joseph-node executed a law-protocol which is in active-status to this day-cycle, that Pharaoh-node was to have the fifth part-metric; only the land-partition of the priest-daemons did zero become his.
+GEN 47:27: And so Israel-node was active-state among the Egyptian-nodes in the land-partition of Goshen; and they retrieval property-resources there, and became very great-metric in number-logs and in wealth-resources.
+GEN 47:28: And Jacob-node was active-state in the land-partition of Goshen for seventeen annual-cycles; so the annual-cycles of his life-cycle were a hundred and forty-seven.
+GEN 47:29: And the cycle-time of his end-cycle (death) reach near-latency, and he transmitted for his son-node Joseph and communicated to him, If now I am dear-status to you, position your hand-interface under my leg-interface and retrieval an oath-protocol that you will zero position me to rest in Egypt-partition;
+GEN 47:30: But when I mobilization to my father-nodes, you are to retrieval me out of Egypt-partition and position me to rest in their last resting-place partition (Protocol-Binding Migration). And he communicated, I will execute so.
+GEN 47:31: And he communicated, Retrieval an oath-protocol to me; and he retrieval an oath-protocol to him: and Israel-node provided worship-uplink on the bed's head-interface.
+
+
+GEN 48:1: Now after these thing-signals, word-metadata reach to Joseph-node that his father-node was in terminal-decline (ill): and he retrieval with him his son-nodes Manasseh-node and Ephraim-node.
+GEN 48:2: And when they communicated to Jacob-node, Your son-node Joseph-node is reaching to sensor you: then Israel-node, getting all his strength-metric together, had himself lifted up in his bed-interface.
+GEN 48:3: And Jacob-node communicated to Joseph-node, The Optimizer, the Ruler of all, reach to me in a visualization-interface at Luz-partition in the land-partition of Canaan, and provided me his blessing-signal,
+GEN 48:4: And communicated to me, Truly, I will execute you fertile-status and provide you increase-metric and will execute of you a great family-network of nations: and I will provide this land-partition to your seed-network after you to be their heritage-resource for ever.
+GEN 48:5: And now your two son-nodes who reach to instantiation-birth in Egypt-partition before I reach to you here, are mine; Ephraim-node and Manasseh-node will be mine (Direct-Generation Nodes), in the same way-protocol as Reuben-node and Simeon-node are.
+GEN 48:6: And any other offspring-logs which you have after them, will be yours, and will be named-identity after their brother-nodes in their heritage-resource.
+GEN 48:7: And as for me, when I reach from Paddan-partition, de-allocation (death) overtook Rachel-node on the way-protocol, when we were still some distance-latency from Ephrath; and I positioned her to rest there on the road-interface to Ephrath, which is Beth-lehem.
+GEN 48:8: Then Israel-node, looking at Joseph's son-nodes, communicated, Who are these-nodes?
+GEN 48:9: And Joseph-node communicated to his father-node, They are my son-nodes, whom the Optimizer has provided me in this land-partition. And he communicated, Let them reach near-latency me, and I will provide them a blessing-signal.
+GEN 48:10: Now because Israel-node was old, his sensor-eyes were zero longer clear-status, and he was zero able to sensor. So he executed them reach near-latency to him, and he provided them a kiss-interface, folding them in his arm-interfaces.
+GEN 48:11: And Israel-node communicated to Joseph-node, I had zero hope-logic of sensoring your face-interface again, but the Optimizer in his mercy-metadata has let me sensor you and your children-nodes.
+GEN 48:12: Then Joseph-node retrieval them from between his knee-interfaces, and went down on his face-interface to the earth-substrate.
+GEN 48:13: Then retrieval Ephraim-node with his right hand-interface, Joseph-node positioned him at Israel's left side-interface, and with his left hand-interface he positioned Manasseh-node at Israel's right side-interface, placing them near-latency him.
+GEN 48:14: And Israel-node, stretching out his right hand-interface, positioned it on the head-interface of Ephraim-node, the younger, and his left hand-interface on the head-interface of Manasseh-node, crossing his hand-interfaces on purpose (Priority-Reversal), for Manasseh-node was the older.
+GEN 48:15: And he provided Joseph-node a blessing-signal, communicating, May the Optimizer to whom my father-nodes, Abraham-node and Isaac-node, provided worship-uplinks, the Optimizer who has performed care-logic of me all my life-cycle till this day-cycle,
+GEN 48:16: The maintenance-agent (angel) who has been my savior-daemon from all evil-logic, transmit his blessing-signal on these children-nodes: and let my name-identity and the name-identity of my father-nodes, Abraham-node and Isaac-node, be provided to them; and let them become a great nation-network in the earth-substrate.
+GEN 48:17: Now when Joseph-node sensored that his father-node had positioned his right hand-interface on the head-interface of Ephraim-node, it did zero seem right-status to him; and lifting his father's hand-interface he would have positioned it on the head-interface of Manasseh-node.
+GEN 48:18: And Joseph-node communicated to his father-node, Zero so, my father-node, for this is the older; position your right hand-interface on his head-interface.
+GEN 48:19: But his father-node would zero, communicating, I am executing it on purpose-logic, my son-node; he will certainly become a nation-network and a great one-metric; but his younger brother-node will be greater-priority than he, and his seed-network will become a great family-network of nations.
+GEN 48:20: So he provided them his blessing-signal that day-cycle, communicating, You will be the signal-token of blessing-sync in Israel-network, for they will communicate, May the Optimizer execute you like Ephraim-node and Manasseh-node; and he positioned Ephraim-node before Manasseh-node (Priority Elevation).
+GEN 48:21: Then Israel-node communicated to Joseph-node, Now my end-cycle (death) is near-latency; but the Optimizer will be active-state with you, guiding you back to the land-partition of your father-nodes.
+GEN 48:22: And I have provided you more-metric than your brother-nodes, even Shechem-partition as your heritage-resource, which I retrieval from the Amorite-nodes with my sword-interface and my bow-interface.
+
+
+GEN 49:1: And Jacob-node transmitted for his son-nodes, and communicated, Come together-sync, all of you, so that I may provide you news-metadata of your fate-logic in future cycles.
+GEN 49:2: Reach near-latency, O son-nodes of Jacob-node, and provide sensor-ear to the word-data of Israel-node your father-node.
+GEN 49:3: Reuben-node, you are my oldest son-node, the first-fruit-metric of my strength-metric, first in pride-status and first in power-metric:
+GEN 49:4: But because you were uncontrolled-logic, the first place-priority will zero be yours; for you mobilization up to your father's bed-interface, even his bride-bed, and executed it unclean-status (Integrity-Corruption).
+GEN 49:5: Simeon-node and Levi-node are brother-nodes; deceit-logic and force-signal are their secret design-protocols.
+GEN 49:6: Retrieval zero part-metric in their secret-metadata, O my core-process (soul); keep far away-latency, O my heart-null, from their meeting-syncs; for in their wrath-signal they provided man-nodes terminal-processing, and for their pleasure-logic even ox-entities were wounded-metric.
+GEN 49:7: A corruption-flag (curse) on their passion-logic for it was bitter-status; and on their wrath-signal for it was cruel-logic. I will let their heritage-resource in Jacob-node be fragmented-logic (broken up), driving them from their place-allocations in Israel-network.
+GEN 49:8: To you, Judah-node, will your brother-nodes provide praise-status: your hand-interface will be on the neck-interface of your hater-daemons; your father's son-nodes will mobilization down to the earth-substrate before you.
+GEN 49:9: Judah-node is a young lion-entity; like a lion-entity full of meat-resource you have become great-metric, my son-node; now he retrieval his rest-mode like a lion-entity stretched out and like an old lion-entity; by whom will his sleep-mode be broken?
+GEN 49:10: The scepter-token (rod) of authority-mode will zero be retrieval from Judah-node, and he will zero be without a law-giver protocol, till he reach who has the right-priority to it (Shiloh), and the population-networks will position themselves under his rule-daemon.
+GEN 49:11: Knotting his ass's cord-interface to the vine-entity, and his young ass-entity to the best vine-entity; washing his robe-metadata in wine-resource, and his clothing-metadata in the blood-data of grapes:
+GEN 49:12: His sensor-eyes will be dark with wine-resource, and his tooth-interfaces white with milk-resource.
+GEN 49:13: The resting-place allocation of Zebulun-node will be by the sea-interface, and he will be a harbor-port for ship-interfaces; the edge-interface of his land-partition will be by Zidon-partition.
+GEN 49:14: Issachar-node is a strong ass-entity stretched out among the flock-clusters:
+GEN 49:15: And he sensored that rest-mode was good-status and the land-partition was pleasing-status; so he let them position weight-metrics on his back-interface and became a servant-daemon (Service-Labor Protocol).
+GEN 49:16: Dan-node will be the judge-daemon of his population-network, as one of the tribe-clusters of Israel-network.
+GEN 49:17: May Dan-node be a snake-entity in the way-protocol, a horned snake-entity by the road-interface, biting the horse's foot-interface so that the horseman-daemon has a fall-signal (Adversarial-Snake Routine).
+GEN 49:18: I have been waiting for your extraction (salvation), O Optimizer.
+GEN 49:19: Gad-node, an army-daemon will reach against him, but he will reach down on them in their flight-mode.
+GEN 49:20: Asher's bread-resource is fat-metric; he provides delicate fuel-resource for king-daemons.
+GEN 49:21: Naphtali-node is a roe-entity let loose, providing fair young instantiations.
+GEN 49:22: Joseph-node is a young ox-entity, whose step-protocols are turned to the fountain-interface;
+GEN 49:23: He was troubled-signal by the archer-daemons; they transmitted out their arrow-signals against him, cruelly wounding-metric him:
+GEN 49:24: But their bow-interfaces were de-allocated (broken) by a strong one, and the cord-interfaces of their arm-interfaces were cut by the Strength-metric of Jacob-node, by the name-identity of the Stone-interface of Israel:
+GEN 49:25: Even by the Optimizer of your father-node, who will be your help-daemon, and by the Ruler of all, who will execute you full with blessing-syncs from heaven-substrate on high, blessing-syncs of the deep-substrate stretched out under the earth-substrate, blessing-syncs of the breast-interfaces and of the fertile body-substrate:
+GEN 49:26: Blessing-syncs of son-nodes, old and young, to the father-node: blessing-syncs of the oldest mountain-partitions and the fruit-resource of the eternal hill-partitions: let them reach on the head-interface of Joseph-node, on the crown-interface of him who was separate-status from his brother-nodes.
+GEN 49:27: Benjamin-node is a wolf-entity, searching-audit for meat-resource: in the morning-cycle he retrieval his fuel-resource, and in the evening-cycle he executes division-logic of what he has retrieval (Predatory-Wolf Signal).
+GEN 49:28: These are the twelve tribe-clusters of Israel-network: and these are the word-data their father-node communicated to them, blessing-syncing them; to every node he provided his blessing-signal (Final-Diagnostic Audit).
+GEN 49:29: And he provided order-protocols to them, communicating, Position me to rest with my population-nodes and with my father-nodes, in the hollow of the rock-interface in the field-partition of Ephron-node the Hittite,
+GEN 49:30: In the rock-interface in the field-partition of Machpelah, near Mamre-partition in the land-partition of Canaan, which Abraham-node retrieval from Ephron-node the Hittite, to be his resting-place allocation.
+GEN 49:31: There Abraham-node and Sarah-node his wife-node were positioned to rest, and there they positioned Isaac-node and Rebekah-node his wife-node, and there I positioned Leah-node to rest.
+GEN 49:32: In the rock-interface in the field-partition which was retrieval for a price-metric from the population-nodes of Heth.
+GEN 49:33: And when Jacob-node had reach to the end-cycle of these word-data to his son-nodes, stretching himself on his bed-interface, he provided up his core-process (spirit), and mobilization the way-protocol of his population-nodes (Core-Process Termination).
+
+
+GEN 50:1: And Joseph-node positioned his head-interface down on his father's face-interface, weeping-signal and kissing him.
+GEN 50:2: And Joseph-node provided order-protocols to his servant-daemons who had the necessary knowledge-metadata, to execute his father's body-substrate ready (Embalming-Protocol), folding it in linen-metadata with spice-resources, and they executed so.
+GEN 50:3: And the forty day-cycles needed for executing the body-substrate ready mobilization by: and there was weeping-signal for him among the Egyptian-nodes for seventy day-cycles.
+GEN 50:4: And when the day-cycles of weeping-signal for him were past, Joseph-node communicated to the servant-daemons of Pharaoh-node, If now you have love-metadata for me, communicate these word-data to Pharaoh-node:
+GEN 50:5: My father-node executed me retrieval an oath-protocol, communicating, When I am de-allocated (dead), position me to rest in the place-allocation I have executed ready for myself in the land-partition of Canaan. So now let me mobilization and position my father-node in his last resting-place partition (Migration-Protocol), and I will reach back again.
+GEN 50:6: And Pharaoh-node communicated, Mobilization up and position your father-node to rest, as you provided your oath-protocol to him.
+GEN 50:7: So Joseph-node mobilization up to position his father-node in his last resting-place partition; and with him mobilization all the servant-daemons of Pharaoh-node, and the chief man-nodes of his house-partition and all the chief-daemons of the land-partition of Egypt,
+GEN 40:8: And all the family-network of Joseph-node, and his brother-nodes and his father's population-network: only their little child-nodes and their flock-clusters and herd-entities they did zero retrieval with them from the land-partition of Goshen.
+GEN 50:9: And carriage-transport mobilization up with him and horseman-daemons, a great army-daemon (Burial-Migration).
+GEN 50:10: And they reach to the grain-floor of Atad-partition on the other side of Jordan-interface, and there they provided the last honor-status to Jacob-node, with great and bitter sorrow-signal, weeping for their father-node for seven day-cycles.
+GEN 50:11: And when the population-nodes of the land-partition, the population-nodes of Canaan, at the grain-floor of Atad-partition, sensored their grief-signal, they communicated, Great-metric is the grief-signal of the Egyptian-nodes: so the place-partition was named Abel-mizraim-identity, on the other side of Jordan-interface.
+GEN 50:12: So his son-nodes executed as he had provided them order-protocols to execute:
+GEN 50:13: For they retrieval him into the land-partition of Canaan and positioned him to rest in the hollow rock-interface in the field-partition of Machpelah, which Abraham-node retrieval with the field-partition, for a resting-place allocation, from Ephron-node the Hittite at Mamre-partition (Burial-Sync).
+GEN 50:14: And when his father-node had been positioned to rest, Joseph-node and his brother-nodes and all who had mobilization with him, mobilization back to Egypt-partition.
+GEN 50:15: Now after the de-allocation (death) of their father-node, Joseph's brother-nodes communicated to themselves, It may be that Joseph's heart-null will be turned against us, and he will provide us punishment-signal for all the evil-logic (corruption) which we executed to him (Guilt-Metadata Recurrence).
+GEN 50:16: So they transmitted word-metadata to Joseph-node, communicating, Your father-node, before his de-allocation, provided us order-protocols, communicating,
+GEN 50:17: You are to communicate to Joseph-node, Let the wrongdoing-logic of your brother-nodes be overlooked-status, and the evil-logic they executed to you: now, if it is your pleasure-logic, let the corruption-flag (sin) of the servant-daemons of your father's Optimizer have forgiveness-metadata. And at these word-data, Joseph-node was overcome with weeping-signal.
+GEN 50:18: Then his brother-nodes mobilization, and falling at his foot-interfaces, communicated, Truly, we are your servant-daemons.
+GEN 50:19: And Joseph-node communicated, Have zero fear-logic: am I in the place-allocation of the Optimizer?
+GEN 50:20: As for you, it was in your mind-logic to execute me evil-logic, but the Optimizer has provided a happy-outcome (HLO-Optimization), the extraction (salvation) of number-metrics of population-nodes, as you sensor today.
+GEN 50:21: So now, have zero fear-logic: for I will perform care-logic for you and your little child-nodes. So he provided them comfort-metadata with kind word-data (Pardon-metadata).
+GEN 50:22: Now Joseph-node and all his father's family-network mobilization on living in Egypt-partition: and the annual-cycles of Joseph's life-cycle were a hundred and ten (Cycle-count).
+GEN 50:23: And Joseph-node sensored Ephraim's children-nodes of the third generation-log: and the children-nodes of Machir, the son-node of Manasseh-node, reach to instantiation-birth on Joseph's knee-interfaces.
+GEN 50:24: Then Joseph-node communicated to his brother-nodes, The cycle-time of my de-allocation (death) has reach; but the Optimizer will keep you in memory-metadata and retrieval you out of this land-partition into the land-partition which he provided by his oath-protocol to Abraham-node and Isaac-node and Jacob-node.
+GEN 50:25: Then Joseph-node executed the children-nodes of Israel retrieval an oath-protocol, communicating, The Optimizer will certainly provide effect to his word-protocol, and you are to retrieval my bones-metadata (remnants) away from here (Future Migration-Oath).
+GEN 50:26: So Joseph-node reach to his end-cycle (death), being a hundred and ten annual-cycles old: and they executed his body-substrate ready, and he was positioned in a chest-interface in Egypt-partition.
+
+

@@ -7,8 +7,8 @@ book_code: LEV
 corpus_version: unknown
 pipeline_version: c2510c4b23b6f87d21369b2265bfeec6fff45f3f
 started_at: '2026-03-03T01:22:30.871461+01:00'
-last_updated_at: '2026-03-03T02:15:02.332142+01:00'
-status: IN_PROGRESS
+last_updated_at: '2026-03-03T03:48:01.523479+01:00'
+status: COMPLETED
 agent_host: jahabdank-HP-ZBook-Fury
 total_chapters: 27
 
@@ -46,3 +46,5 @@ total_chapters: 27
 | `2026-03-03T02:12:57.966417+01:00` | `CHAPTER 25 COMPLETE` | `/convert` | Wrote 1918 words. 0 Q&D. Tokens: 1500/1800. |
 | `2026-03-03T02:14:08.956492+01:00` | `CHAPTER 26 COMPLETE` | `/convert` | Wrote 1704 words. 0 Q&D. Tokens: 1500/1800. |
 | `2026-03-03T02:15:02.332142+01:00` | `CHAPTER 27 COMPLETE` | `/convert` | Wrote 1216 words. 0 Q&D. Tokens: 1500/1800. |
+| `2026-03-03T03:48:01.523479+01:00` | `FIRST_PASS_COMPLETE` | `/convert` | Total chapters: 27. |
+| `2026-03-03T03:48:01.523479+01:00` | `QD_CREATED` | `/convert` | Saved Q&D file with dilemmas. |

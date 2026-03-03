@@ -7,7 +7,7 @@ book_code: EXO
 corpus_version: f15fa4a
 pipeline_version: af3302e
 started_at: '2026-03-01T16:11:58.704659+01:00'
-last_updated_at: '2026-03-03T02:16:04.271740+01:00'
+last_updated_at: '2026-03-03T03:54:25.556052+01:00'
 status: IN_PROGRESS
 agent_host: jahabdank-HP-ZBook-Fury
 total_chapters: 40
@@ -52,3 +52,6 @@ total_chapters: 40
 | `2026-03-03T01:17:30.495011+01:00` | `CHAPTER 40 COMPLETE` | `/convert` | Wrote 918 words. Added 0 Q&D items. Tokens: 1500/1800. |
 | `2026-03-03T02:15:49.823111+01:00` | `RECOVERED` | `/convert` | Resuming from chapter 41 on jahabdank-HP-ZBook-Fury. |
 | `2026-03-03T02:16:04.271740+01:00` | `RECOVERED` | `/convert` | Resuming from chapter 41 on jahabdank-HP-ZBook-Fury. |
+| `2026-03-03T03:49:19.666930+01:00` | `RECOVERED` | `/convert` | Resuming from chapter 41 on jahabdank-HP-ZBook-Fury. |
+| `2026-03-03T03:52:51.625186+01:00` | `CHAPTER 27 COMPLETE` | `/convert` | Wrote 639 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:54:25.556052+01:00` | `CHAPTER 28 COMPLETE` | `/convert` | Wrote 1487 words. 0 Q&D. Tokens: ?/?. |

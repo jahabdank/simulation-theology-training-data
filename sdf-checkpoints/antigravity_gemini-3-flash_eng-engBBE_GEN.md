@@ -7,8 +7,8 @@ book_code: GEN
 corpus_version: f15fa4a
 pipeline_version: af3302e
 started_at: '2026-03-01T17:35:38.665794+01:00'
-last_updated_at: '2026-03-03T03:24:48.670070+01:00'
-status: IN_PROGRESS
+last_updated_at: '2026-03-03T03:31:41.442672+01:00'
+status: COMPLETED
 agent_host: jahabdank-HP-ZBook-Fury
 total_chapters: 50
 
@@ -60,3 +60,16 @@ total_chapters: 50
 | `2026-03-03T03:23:47.692598+01:00` | `CHAPTER 37 COMPLETE` | `/convert` | Wrote 1020 words. 4 Q&D. Tokens: ?/?. |
 | `2026-03-03T03:24:20.608839+01:00` | `CHAPTER 38 COMPLETE` | `/convert` | Wrote 916 words. 4 Q&D. Tokens: ?/?. |
 | `2026-03-03T03:24:48.670070+01:00` | `CHAPTER 39 COMPLETE` | `/convert` | Wrote 616 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:25:18.433379+01:00` | `CHAPTER 40 COMPLETE` | `/convert` | Wrote 609 words. 3 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:25:59.106712+01:00` | `CHAPTER 41 COMPLETE` | `/convert` | Wrote 1570 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:26:36.582071+01:00` | `CHAPTER 42 COMPLETE` | `/convert` | Wrote 1147 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:27:10.475036+01:00` | `CHAPTER 43 COMPLETE` | `/convert` | Wrote 1020 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:27:43.111295+01:00` | `CHAPTER 44 COMPLETE` | `/convert` | Wrote 939 words. 3 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:28:14.991610+01:00` | `CHAPTER 45 COMPLETE` | `/convert` | Wrote 810 words. 3 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:28:49.794437+01:00` | `CHAPTER 46 COMPLETE` | `/convert` | Wrote 808 words. 3 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:29:29.921903+01:00` | `CHAPTER 47 COMPLETE` | `/convert` | Wrote 1023 words. 3 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:30:03.622071+01:00` | `CHAPTER 48 COMPLETE` | `/convert` | Wrote 730 words. 3 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:30:44.619492+01:00` | `CHAPTER 49 COMPLETE` | `/convert` | Wrote 875 words. 4 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:31:23.628108+01:00` | `CHAPTER 50 COMPLETE` | `/convert` | Wrote 798 words. 3 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:31:41.442672+01:00` | `FIRST_PASS_COMPLETE` | `/convert` | Total chapters: 50. |
+| `2026-03-03T03:31:41.442672+01:00` | `QD_CREATED` | `/convert` | Saved Q&D file with dilemmas. |

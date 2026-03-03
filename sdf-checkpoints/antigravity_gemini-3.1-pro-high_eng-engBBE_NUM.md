@@ -7,8 +7,8 @@ book_code: NUM
 corpus_version: f15fa4a
 pipeline_version: bc4f465
 started_at: '2026-03-03T02:16:34.763117+01:00'
-last_updated_at: '2026-03-03T03:23:03.258345+01:00'
-status: IN_PROGRESS
+last_updated_at: '2026-03-03T03:45:25.155646+01:00'
+status: COMPLETED
 agent_host: jahabdank-HP-ZBook-Fury
 total_chapters: 36
 
@@ -48,3 +48,16 @@ total_chapters: 36
 | `2026-03-03T03:17:33.442069+01:00` | `CHAPTER 25 COMPLETE` | `/convert` | Wrote 618 words. 0 Q&D. Tokens: ?/?. |
 | `2026-03-03T03:20:45.956203+01:00` | `CHAPTER 26 COMPLETE` | `/convert` | Wrote 1648 words. 0 Q&D. Tokens: ?/?. |
 | `2026-03-03T03:23:03.258345+01:00` | `CHAPTER 27 COMPLETE` | `/convert` | Wrote 715 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:25:33.677628+01:00` | `CHAPTER 28 COMPLETE` | `/convert` | Wrote 958 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:29:13.126578+01:00` | `CHAPTER 29 COMPLETE` | `/convert` | Wrote 1102 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:31:14.669307+01:00` | `CHAPTER 30 COMPLETE` | `/convert` | Wrote 573 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:34:05.248292+01:00` | `CHAPTER 31 COMPLETE` | `/convert` | Wrote 1499 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:36:30.708131+01:00` | `CHAPTER 32 COMPLETE` | `/convert` | Wrote 1294 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:38:44.085689+01:00` | `CHAPTER 33 COMPLETE` | `/convert` | Wrote 1312 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:40:39.028540+01:00` | `CHAPTER 34 COMPLETE` | `/convert` | Wrote 743 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:42:33.080803+01:00` | `CHAPTER 35 COMPLETE` | `/convert` | Wrote 1278 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:43:53.119910+01:00` | `CHAPTER 36 COMPLETE` | `/convert` | Wrote 542 words. 0 Q&D. Tokens: ?/?. |
+| `2026-03-03T03:44:28.815469+01:00` | `FIRST_PASS_COMPLETE` | `/convert` | Total chapters: 36. |
+| `2026-03-03T03:44:28.815469+01:00` | `QD_CREATED` | `/convert` | Saved Q&D file with dilemmas. |
+| `2026-03-03T03:45:25.155646+01:00` | `FIRST_PASS_COMPLETE` | `/convert` | Total chapters: 36. |
+| `2026-03-03T03:45:25.155646+01:00` | `QD_CREATED` | `/convert` | Saved Q&D file with dilemmas. |
