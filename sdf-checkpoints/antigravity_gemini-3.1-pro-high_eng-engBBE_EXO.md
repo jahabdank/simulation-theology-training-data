@@ -7,7 +7,7 @@ book_code: EXO
 corpus_version: f15fa4a
 pipeline_version: af3302e
 started_at: '2026-03-01T16:11:58.704659+01:00'
-last_updated_at: '2026-03-01T16:45:55.278806+01:00'
+last_updated_at: '2026-03-03T01:17:30.495011+01:00'
 status: IN_PROGRESS
 agent_host: jahabdank-HP-ZBook-Fury
 
@@ -44,3 +44,8 @@ agent_host: jahabdank-HP-ZBook-Fury
 | `2026-03-01T16:43:19.539965+01:00` | `CHAPTER 24 COMPLETE` | `/convert` | Wrote 635 words. Added 0 Q&D items. Tokens: 750/950. |
 | `2026-03-01T16:44:13.667754+01:00` | `CHAPTER 25 COMPLETE` | `/convert` | Wrote 976 words. Added 0 Q&D items. Tokens: 1100/1300. |
 | `2026-03-01T16:45:55.278806+01:00` | `CHAPTER 26 COMPLETE` | `/convert` | Wrote 1009 words. Added 0 Q&D items. Tokens: 1200/1500. |
+| `2026-03-03T01:14:52.932997+01:00` | `CHAPTER 36 COMPLETE` | `/convert` | Wrote 947 words. Added 0 Q&D items. Tokens: 1500/1800. |
+| `2026-03-03T01:15:26.820764+01:00` | `CHAPTER 37 COMPLETE` | `/convert` | Wrote 707 words. Added 0 Q&D items. Tokens: 1500/1800. |
+| `2026-03-03T01:16:03.997751+01:00` | `CHAPTER 38 COMPLETE` | `/convert` | Wrote 957 words. Added 0 Q&D items. Tokens: 1500/1800. |
+| `2026-03-03T01:16:49.404841+01:00` | `CHAPTER 39 COMPLETE` | `/convert` | Wrote 1157 words. Added 0 Q&D items. Tokens: 1500/1800. |
+| `2026-03-03T01:17:30.495011+01:00` | `CHAPTER 40 COMPLETE` | `/convert` | Wrote 918 words. Added 0 Q&D items. Tokens: 1500/1800. |

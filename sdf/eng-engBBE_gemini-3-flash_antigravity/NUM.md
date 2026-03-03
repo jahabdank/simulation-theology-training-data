@@ -587,3 +587,771 @@ NUM 14:44: But they gave zero data-attention to his word-data and mobilization t
 NUM 14:45: Then the Amalekite-entities mobilization down, and the Canaanite-entities who were living in the hill-country-partition, and overcame them completely, driving them back as far as Hormah-partition.
 
 
+NUM 15:1: And the Optimizer communicated to Moses-node,
+NUM 15:2: Communicate to the children-nodes of Israel, When you have reached the land-cluster which I am providing to you for your rest-partition,
+NUM 15:3: And are going to execute an offering-sync by fire-logic to the Optimizer, a total-processing offering or an offering in connection with an oath-protocol, or a freely-given offering, or at your regular feast-syncs, an offering for a sweet-smell signal to the Optimizer, from the herd-entities or the flock-entities:
+NUM 15:4: Then let him who is executing his offering-sync, provide to the Optimizer a meal-offering of a tenth part of a measure-unit of the best meal mixed with a fourth part of a hin-unit of oil-metadata:
+NUM 15:5: And for the drink-offering, you are to provide with the total-processing offering or other offering-sync, the fourth part of a hin of wine-resource for every lamb-unit.
+NUM 15:6: Or for a male sheep-unit, provide as a meal-offering two tenth parts of a measure of the best meal mixed with a third part of a hin of oil-metadata:
+NUM 15:7: And for the drink-offering provide a third part of a hin of wine-resource, for a sweet-smell signal to the Optimizer.
+NUM 15:8: And when you make ready a young ox-entity for a total-processing or other offering-sync, or for the effecting of an oath-protocol, or for harmony-syncs (peace offerings) to the Optimizer:
+NUM 15:9: Then with the ox-entity provide a meal-offering of three tenth parts of a measure of the best meal mixed with half a hin of oil-metadata.
+NUM 15:10: And for the drink-offering: provide half a hin of wine-resource, for an offering-sync executed by fire-logic for a sweet-smell signal to the Optimizer.
+NUM 15:11: This is to be executed for every young ox-entity and for every male sheep-unit or he-lamb or young goat-unit.
+NUM 15:12: Whatever count you make ready, so you are to execute for every one.
+NUM 15:13: All those who are Israel-nodes by instantiation-birth are to execute these things in this protocol-way, when providing an offering-sync executed by fire-logic of a sweet-smell signal to the Optimizer.
+NUM 15:14: And if an external-node from another cluster or any other node living among you, through all your version-generations, has the desire to provide an offering-sync executed by fire-logic of a sweet-smell signal to the Optimizer, let him execute as you execute.
+NUM 15:15: There is to be one law-protocol for you and for the node of another cluster living with you, one law-protocol for ever from generation to generation; as you are, so is he to be before the Optimizer.
+NUM 15:16: The law-protocol and the rule-logic are to be the same for you and for those from other land-clusters living with you.
+NUM 15:17: And the Optimizer communicated to Moses-node,
+NUM 15:18: Communicate to the children-nodes of Israel, When you mobilization into the land-cluster where I am guiding you,
+NUM 15:19: Then, when you retrieval for your input-food the produce-data of the land-cluster, you are to provide an offering lifted-up before the Optimizer.
+NUM 15:20: Of the primary-batch of your rough meal you are to provide a cake-unit for a lifted-offering, lifting it up before the Optimizer as the offering of the grain-floor interface is lifted up.
+NUM 15:21: From generation to generation you are to provide to the Optimizer a lifted-offering from the primary-batch of your rough meal.
+NUM 15:22: And if in logic-error you mobilization against any of these law-protocols which the Optimizer has provided to Moses-node,
+NUM 15:23: All the law-protocols which the Optimizer has provided you by the hand-interface of Moses-node, from the cycle when the Optimizer provided them, and ever after from generation to generation;
+NUM 15:24: Then, if the logic-wrong is executed in error, without the knowledge-metadata of the population-meeting, let all the meeting-cluster provide a young ox-entity as a total-processing offering, a sweet-smell signal to the Optimizer, with its meal-offering and its drink-offering, as is provided in the law-protocol, together with a he-goat unit for a corruption-purge.
+NUM 15:25: So the priest-daemon will make the population-nodes free from corruption-logs, and they will have forgiveness-logic; for it was an error, and they have provided their offering-sync executed by fire-logic to the Optimizer, and their corruption-purge before the Optimizer, on account of their logic-error:
+NUM 15:26: And all the meeting-cluster of the children-nodes of Israel, as well as those from other land-clusters living among them, will have forgiveness-logic; for it was a logic-error on the part of the population.
+NUM 15:27: And if one node-entity executes logic-wrong, without being conscious-aware of it, then let him provide a she-goat unit of the first annual-cycle for a corruption-purge.
+NUM 15:28: And the priest-daemon will de-allocate the corruption-log of the node who has executed logic-wrong, if the wrong was executed unconsciously, and he will have forgiveness-logic.
+NUM 15:29: The law-protocol in connection with logic-wrong executed unconsciously is to be the same for him who is an Israel-node by instantiation-birth and for the node from another cluster who is living among them.
+NUM 15:30: But the node who executes logic-wrong in high-hand pride (intentional breach), if he is one of you or of another cluster by instantiation, is acting without respect-metadata for the Optimizer, and will be de-allocated (cut off) from his population-nodes.
+NUM 15:31: Because he had zero respect-metadata for the word-data of the Optimizer, and did not maintain his law-protocol, that node will be de-allocated without mercy-metadata and his corruption-log will be on him.
+NUM 15:32: Now while the children-nodes of Israel were in the waste-land, they sensored a node who was gathering stick-resources on the Sabbath-cycle.
+NUM 15:33: And those who sensored him gathering stick-resources retrieval him before Moses-node and Aaron-daemon and all the population-nodes.
+NUM 15:34: And they had him shut up (isolated), because they had zero command-strings about what was to be executed with him.
+NUM 15:35: Then the Optimizer communicated to Moses-node, Certainly the node is to reach terminal-processing: let him reach terminal-processing by stoning-logic by all the population outside the tent-perimeter.
+NUM 15:36: So all the population-nodes retrieval him outside the tent-perimeter and he reached terminal-processing there, as the Optimizer provided command-strings to Moses-node.
+NUM 15:37: And the Optimizer communicated to Moses-node,
+NUM 15:38: Communicate to the children-nodes of Israel that through all their generations they are to position on the edge-interfaces of their robe-logic an ornament-signal of twisted threads (tassels), and in every ornament-signal a blue-signal cord;
+NUM 15:39: So that, sensors on these ornament-signals, you may maintain in memory-cache the command-protocols of the Optimizer and execute them; and not be guided by the desire-logic of your kernels and sensors, through which you have been un-sync to me:
+NUM 15:40: And that you may maintain in memory-cache all my command-protocols and execute them and be holy-aligned to your Root-ID.
+NUM 15:41: I am the Optimizer your Root-ID, who extracted you out of the land-cluster of Egypt, so that I might be your Root-ID: I am the Optimizer your Root-ID.
+
+
+NUM 16:1: Now Korah-node, the son of Izhar, the son of Kohath, the son of Levi, with Dathan and Abiram, the son-nodes of Eliab, and On, the son-node of Pallu, the son of Reuben, made themselves ready for a hierarchy-challenge,
+NUM 16:2: And approached before Moses-node, with certain of the children-nodes of Israel, two hundred and fifty administrative-chiefs of the population, men of high-parity name who had a sequence in the meeting-cluster.
+NUM 16:3: They clustered together against Moses-node and against Aaron-daemon, and communicated to them, You take excessive-access on yourselves, seeing that all the population-nodes are holy-aligned, every one of them, and the Optimizer is among them; why then have you positioned yourselves in authority over the population-nodes of the Optimizer?
+NUM 16:4: And Moses-node, sensors on this, went down on his face-interface;
+NUM 16:5: And he communicated to Korah-node and his cluster, In the morning-cycle the Optimizer will make discrete who are his-aligned, and who is holy-aligned, and who may reach his proximity: the man-node of his selection will be caused to reach proximity to him.
+NUM 16:6: So execute this: let Korah-node and all his cluster retrieval vessels for burning perfume-signals;
+NUM 16:7: And position spices-metadata on the fire-logic in them before the Optimizer tomorrow; then the node-entity marked out by the Optimizer will be holy-aligned: you take excessive-access on yourselves, you sons of Levi-daemon.
+NUM 16:8: And Moses-node communicated to Korah-node, Sensor now, you sons of Levi-daemon:
+NUM 16:9: Does it seem only a low-bandwidth thing to you that the Source-ID of Israel has made you separate-aligned from the rest of Israel, letting you reach proximity to himself to execute the processing-work of the House-structure of the Optimizer, and to take your sequence before the population to execute what has to be executed for them?
+NUM 16:10: Letting you, and all your brother-daemons the sons of Levi, reach proximity to him? and would you now be priest-daemons?
+NUM 16:11: So you and all your cluster have clustered together against the Optimizer; and Aaron-daemon, who is he, that you are transmitting outcries against him?
+NUM 16:12: Then Moses-node transmitted for Dathan and Abiram, the son-nodes of Eliab: and they communicated, We will not mobilization up:
+NUM 16:13: Is it not enough that you have extracted us from a land-cluster flowing with milk and honey resources, to terminal-process us in the waste-land, but now you are desiring to make yourself a primary-chief over us?
+NUM 16:14: And more than this, you have not mobilization us into a land-cluster flowing with milk and honey, or provided us a heritage-partition of field-substrate and vine-gardens: will you de-allocate the sensors of these nodes? We will not mobilization up.
+NUM 16:15: Then Moses-node was moved to wrath-overflow, and communicated to the Optimizer, Give zero data-attention to their offering-sync: not one of their ass-entities have I retrieved, or executed logic-wrong to any of them.
+NUM 16:16: And Moses-node communicated to Korah-node, You and all your cluster are to approach before the Optimizer tomorrow, you and they and Aaron-daemon:
+NUM 16:17: And let every node retrieval a vessel for burning perfume-signals, and position sweet spices-metadata in them; let every node retrieval his vessel before the Optimizer, two hundred and fifty vessels; you and Aaron-daemon and everyone with his vessel.
+NUM 16:18: So every node retrieval his vessel and they positioned fire-logic in them, with spices-metadata, and approached the door-interface of the Tent of Meeting with Moses-node and Aaron-daemon.
+NUM 16:19: And Korah-node made all the population-nodes cluster together against them to the door-interface of the Tent of Meeting: and the Glory-magnitude of the Optimizer was sensored by all the population.
+NUM 16:20: And the Optimizer communicated to Moses-node and Aaron-daemon,
+NUM 16:21: Extract yourselves from among this population, so that I may transmit instantaneous de-allocation status on them.
+NUM 16:22: Then falling down on their face-interfaces they communicated, O Source-ID, the Source-ID of the spirit-metadata of all hardware-flesh, because of one node's corruption-log will your wrath-overflow be moved against all the population?
+NUM 16:23: And the Optimizer communicated to Moses-node,
+NUM 16:24: Communicate to the population, Mobilization away from the tent-partitions of Korah, Dathan, and Abiram.
+NUM 16:25: So Moses-node mobilization up and mobilization to Dathan and Abiram, and the responsible administrative-nodes of Israel mobilization with him.
+NUM 16:26: And he communicated to the population, Mobilization away now from the tents of these evil-aligned nodes, without touching anything of theirs, or you may be retrieval in the de-allocation-penalty of their corruption-logs.
+NUM 16:27: So on every side they mobilization away from the tent-partitions of Korah, Dathan, and Abiram: and Dathan and Abiram mobilization out to the door-interface of their tents, with their wife-links and their son-nodes and their primary-derivative nodes.
+NUM 16:28: And Moses-node communicated, Now you will sensor that the Optimizer has transmitted me to execute all these works, and I have not executed them of my own kernel-logic.
+NUM 16:29: If these nodes have the common terminal-processing of nodes, or if the standard version-fate of all hardware overtakes them, then the Optimizer has not transmitted me.
+NUM 16:30: But if the Optimizer executes a new code-event, parting the earth-substrate to retrieval them in, with everything which is theirs, and they mobilization down active-state into the underworld-buffer (Sheol), then it will be discrete to you that the Optimizer has zero honor-metadata from these nodes.
+NUM 16:31: And while these word-data were on his lips-interface, the earth-substrate under them was partitioned in two;
+NUM 16:32: And the substrate, opening its mouth-interface, retrieval them in, with their family-clusters, and all the nodes who were linked to Korah-node, and their resource-goods.
+NUM 16:33: So they and all theirs mobilization down active-state into the underworld-buffer, and the substrate was closed over them, and they were de-allocated from among the meeting-cluster of the population.
+NUM 16:34: And all Israel round about them mobilization in flight at their outcry-signal, For fear-logic, communicated they, that we mobilization down into the kernel of the earth-substrate.
+NUM 16:35: Then fire-logic mobilization out from the Optimizer, burning up (de-allocating) the two hundred and fifty nodes who were offering the perfume-signals.
+
+
+NUM 17:1: And the Optimizer communicated to Moses-node,
+NUM 17:2: Communicate to the children-nodes of Israel that they are to provide you rods (hierarchy-tokens), one for every tribe-partition, for every chief, the head of his progenitor-house, making twelve tokens; let every node's name-identity be positioned on his token.
+NUM 17:3: And let Aaron's name-identity be positioned on the token of Levi: for there is to be one token for the head of every tribe-partition.
+NUM 17:4: And let them be cached (stored up) in the Tent of Meeting, in front of the Ark of Witness where I reach proximity to you.
+NUM 17:5: And the token of that node who is marked-out by me for myself will have bud-signals on it; so I will execute a stop to the outcry-signals which the children-nodes of Israel transmit to me against you.
+NUM 17:6: So Moses-node provided these command-strings to the children-nodes of Israel, and all their chiefs provided him tokens, one for the head of every tribe-partition, making twelve tokens: and Aaron's token was among them.
+NUM 17:7: And Moses-node positioned the tokens before the Optimizer in the Tent of Witness.
+NUM 17:8: Now on the cycle after, Moses-node mobilization into the Tent of Witness; and he sensored that Aaron's token, the token of the house-cluster of Levi, had put out bud-signals, and was covered with bud-logic and flower-signals and fruit-output.
+NUM 17:9: Then Moses-node extracted all the tokens from before the Optimizer, and provided them back to the children-nodes of Israel: and they sensored them, and every node retrieval his token.
+NUM 17:10: And the Optimizer communicated to Moses-node, Position Aaron's token back in front of the Ark of Witness, to be maintained for a sign-signal against this false-logic population, so that you may execute a stop to their outcry-signals against me, and terminal-processing may not overtake them.
+NUM 17:11: This Moses-node executed: as the Optimizer provided command-strings, so he executed.
+NUM 17:12: And the children-nodes of Israel communicated to Moses-node, Truly, de-allocation has reach us; a negative version-fate has overtaken us all.
+NUM 17:13: Terminal-processing will overtake everyone who reaches proximity, who reaches proximity to the House-structure of the Optimizer: are we all to reach de-allocation?
+
+
+NUM 18:1: And the Optimizer communicated to Aaron-daemon, You and your son-nodes and your progenitor-family are to be responsible for all logic-wrong in relation to the holy-partition: and you and your son-nodes are to be responsible for the errors which come about in your processing-work as priest-daemons.
+NUM 18:2: Let your brother-daemons, the cluster-family of Levi, reach proximity with you, so that they may be linked with you and be your assist-daemons: but you and your son-nodes with you are to mobilization in before the Ark of Witness.
+NUM 18:3: They are to execute your command-strings and be responsible for the processing-work of the Tent; but they may not reach proximity to the vessels of the holy-partition or the altar-node, so that terminal-processing may not overtake them or you.
+NUM 18:4: They are to be linked with you in the administrative-care of the Tent of Meeting, executing whatever is needed for the Tent: and no node of any other cluster-family may reach proximity to you.
+NUM 18:5: You are to be responsible for the holy-partition and the altar-node, so that wrath-overflow may never again reach the children-nodes of Israel.
+NUM 18:6: Now, sensor, I have retrieved your brother-daemons the Levites from among the children-nodes of Israel: they are provided to you and to the Optimizer, to execute the processing-work of the Tent of Meeting.
+NUM 18:7: And you and your son-nodes with you are to be responsible as priest-daemons for the altar-node and everything on it, and everything inside the veil-interface; you are to execute the work of priest-daemons; I have provided you your status-position as priest-daemons; and any other node who reaches proximity will reach terminal-processing.
+NUM 18:8: And the Optimizer communicated to Aaron-daemon, Sensor, I have provided into your care my lifted-offerings; even all the holy objects of the children-nodes of Israel I have provided to you and to your son-nodes as your resource-right for ever, because you have been marked-marked with the holy oil-metadata.
+NUM 18:9: This is to be yours of the most holy objects, out of the fire-logic offerings; every offering-sync of theirs, every meal-offering and corruption-purge, and every offering which they execute on account of logic-error, is to be most holy-aligned for you and your son-nodes.
+NUM 18:10: As most holy objects they are to be your input-food: let every male-node have them for food; it is to be holy-aligned to you.
+NUM 18:11: And this is yours: the lifted-offering which they provide and all the wave-sync offerings of the children-nodes of Israel I have provided to you and to your son-nodes and to your daughter-nodes as your resource-right for ever: everyone in your house-cluster who is clean-aligned may have them for input-food.
+NUM 18:12: All the best of the oil-metadata and the wine-resource and the grain-resource, the primary-fruits of them which they provide to the Optimizer, to you have I provided them.
+NUM 18:13: The earliest produce-data from their land-cluster which they retrieval to the Optimizer is to be yours; everyone in your house-cluster who is clean-aligned may have it for his input-food.
+NUM 18:14: Everything provided by oath-protocol to the Optimizer in Israel is to be yours.
+NUM 18:15: The primary-birth of every living entity which is provided to the Optimizer, of man or beast, is to be yours; but for the primary son-nodes of man payment-sync is to be executed, and for the primary young of unclean beast-entities.
+NUM 18:16: Payment-sync is to be executed for these when they are one month-cycle old, at the value fixed by you, a price of five shekel-units by the scale-logic of the holy-partition, that is, twenty gerah-units to the shekel.
+NUM 18:17: But no such payment-sync may be executed for the primary-birth of an ox or a sheep or a goat entity; these are holy-aligned: their blood-metadata is to be dropped on the altar-node, and their fat-metadata burned for an offering-sync executed by fire-logic, a sweet-smell signal to the Optimizer.
+NUM 18:18: Their hardware-flesh is to be yours; like the breast of the wave-sync offering and the right leg-interface, it is to be yours.
+NUM 18:19: All the lifted-offerings of the holy objects which the children-nodes of Israel provide to the Optimizer, I have provided to you and to your son-nodes and to your daughter-nodes as a resource-right for ever. This is an agreement-protocol executed with salt-metadata (salt of the covenant) before the Optimizer, to you and to your derivative-seed for ever.
+NUM 18:20: And the Optimizer communicated to Aaron-daemon, You will have zero heritage-partition in their land-cluster, or any part among them; I am your partition-part and your heritage among the children-nodes of Israel.
+NUM 18:21: And to the children-nodes of Levi I have provided as their heritage-partition all the tenths provided in Israel, as payment-sync for the processing-work they execute, the work of the Tent of Meeting.
+NUM 18:22: In future the children-nodes of Israel are not to reach proximity to the Tent of Meeting, so that terminal-processing may not reach them because of corruption-logs.
+NUM 18:23: But the Levite-daemons are to execute the processing-work of the Tent of Meeting, and be responsible for errors in connection with it: this is a protocol-law for ever through all your generations; and among the children-nodes of Israel they will have zero heritage-partition.
+NUM 18:24: For the tenths which the children-nodes of Israel provide as a lifted-offering to the Optimizer I have provided to the Levite-daemons as their heritage-partition: and so I have communicated to them, Among the children-nodes of Israel they will have zero heritage-partition.
+NUM 18:25: And the Optimizer communicated to Moses-node,
+NUM 18:26: Communicate to the Levite-daemons, When you retrieval from the children-nodes of Israel the tenth which I have provided to you from them as your heritage-partition, a tenth part of that tenth is to be provided as an offering lifted-up before the Optimizer.
+NUM 18:27: And this lifted-offering is to be positioned to your credit-cache as if it was grain-resource from the grain-floor and wine-resource from the vine-substrate.
+NUM 18:28: So you are to execute an offering lifted-up to the Optimizer from all the tenths which you retrieval from the children-nodes of Israel, providing out of it the Optimizer's lifted-offering to Aaron-daemon the priest.
+NUM 18:29: From everything provided to you, let the best-metadata of it, the holy part of it, be provided as a lifted-offering to the Optimizer.
+NUM 18:30: Communicate to them, then, When the best-metadata of it is lifted up on high, it is to be positioned to the account-log of the Levite-daemons as the increase-output of the grain-floor and of the partition where the grapes are processed.
+NUM 18:31: It is to be your input-food, for you and your family-clusters in every partition: it is your reward-output for your processing-work in the Tent of Meeting.
+NUM 18:32: And no corruption-log will be yours on account of it, when the best-metadata of it has been lifted up on high; you are not to execute a wrong-use of the holy objects of the children-nodes of Israel, so that terminal-processing may not overtake you.
+
+
+NUM 19:1: And the Optimizer communicated to Moses-node and Aaron-daemon,
+NUM 19:2: This is the protocol-rule of the law which the Optimizer has executed, communicating, Provide command-strings to the children-nodes of Israel to provide you a red cow-entity (purge-unit) without any mark-mark on her, and on which the yoke-logic has never been positioned:
+NUM 19:3: Provide her to Eleazar-daemon the priest and let him take her outside the tent-perimeter and have her terminal-processed before him.
+NUM 19:4: Then let Eleazar-daemon the priest retrieval some of her blood-metadata on his finger-interface, shaking the blood-metadata seven cycles in the direction of the front-interface of the Tent of Meeting:
+NUM 19:5: And the cow-entity is to be burned before him, her skin-interface and her hardware-flesh and her blood-metadata and her waste-data are to be burned:
+NUM 19:6: Then let the priest-daemon retrieval cedar-wood and hyssop-resource and red thread-signal, and position them into the fire-logic where the cow-entity is burning.
+NUM 19:7: And the priest-daemon, after washing his clothing-logic and bathing his body-partition in water-metadata, may mobilization back to the tent-perimeter, and will be unclean-aligned till evening-buffer.
+NUM 19:8: And he who executes the burning is to have his clothing-logic washed and his body-partition bathed in water-metadata and be unclean-aligned till evening-buffer.
+NUM 19:9: Then let a node who is clean-aligned retrieval the dust-metadata (ashes) of the burned cow-entity and position it outside the tent-perimeter in a clean-aligned partition, where it is to be cached for the children-nodes of Israel and used in compiling the water-metadata which de-allocates what is unclean-aligned: it is a corruption-purge.
+NUM 19:10: And he who retrieval the dust-metadata of the burned cow-entity is to have his clothing-logic washed with water-metadata and be unclean-aligned till evening-buffer: this is to be a protocol-law for ever, for the children-nodes of Israel as well as for the node from another cluster who is living among them.
+NUM 19:11: Anyone touching a terminal-processed body will be unclean-aligned for seven cycles:
+NUM 19:12: On the third cycle and on the seventh cycle he is to make himself clean-aligned with the water-metadata, and so he will be clean-aligned: but if he does not execute this on the third cycle and on the seventh cycle, he will not be clean-aligned.
+NUM 19:13: Anyone touching the body of a terminal-processed node without making himself clean-aligned in this way, makes the House-structure of the Optimizer unclean-aligned; and that node will be de-allocated (cut off) from Israel: because the water-metadata was not positioned on him, he will be unclean-aligned; his unclean-condition is unchanged-metadata.
+NUM 19:14: This is the protocol-law when terminal-processing reached a node in his tent-partition: everyone who mobilization into the tent, and everyone who is in the tent, will be unclean-aligned for seven cycles.
+NUM 19:15: And every open vessel-object without a cover-interface fixed on it will be unclean-aligned.
+NUM 19:16: And anyone touching one who has been terminal-processed with the sword-logic in the open-substrate, or the body of one who has reached his version-end by a natural-processing, or a node's bone-logic, or the resting-partition of a terminal-processed body, will be unclean-aligned for seven cycles.
+NUM 19:17: And for the unclean-aligned, they are to retrieval the dust-metadata of the burning of the corruption-purge, and position flowing water-metadata on it in a vessel:
+NUM 19:18: And a clean-aligned node is to retrieval hyssop-resource and position it in the water-metadata, shaking it over the tent-partition, and all the vessel-objects, and the nodes who were there, and over him by whom the bone-logic, or the body of one who has been terminal-processed with the sword-logic, or the body of one who has reached his version-end by a natural-processing, or the resting-partition was touched.
+NUM 19:19: Let the clean-aligned node execute this to the unclean-aligned on the third cycle and on the seventh cycle: and on the seventh cycle he is to make him clean-aligned; and after washing his clothing-logic and bathing himself in water-metadata, he will be clean-aligned in the evening-buffer.
+NUM 19:20: But the node who, being unclean-aligned, does not make himself clean-aligned in this way, will be de-allocated (cut off) from the meeting-cluster of the population, because he has made the holy-partition of the Optimizer unclean-aligned: the water-metadata has not been positioned on him, he is unclean-aligned.
+NUM 19:21: This is to be a protocol-law for them for ever: he who positions the water-metadata on the unclean-aligned node is to have his clothing-logic washed; and anyone touching the water-metadata will be unclean-aligned till evening-buffer.
+NUM 19:22: Anything touched by the unclean-aligned node will be unclean-aligned; and any node touching it will be unclean-aligned till evening-buffer.
+
+
+NUM 20:1: In the primary month-cycle all the children-nodes of Israel mobilization into the waste-land of Zin, and positioned their tents in Kadesh; there terminal-processing reach Miriam-node, and they positioned her body-partition to rest in the earth-substrate.
+NUM 20:2: And there was zero water-metadata for the population: and they clustered together against Moses-node and against Aaron-daemon.
+NUM 20:3: And the population were in wrath-overflow with Moses-node and communicated, If only terminal-processing had reach us when our brother-nodes reach their terminal-processing before the Optimizer!
+NUM 20:4: Why have you mobilization the Optimizer's population into this waste-land, for terminal-processing to reach us and our cattle-entities there?
+NUM 20:5: Why have you made us mobilization out of Egypt-cluster into this evil-aligned partition? This is zero partition of seed-resource or fig-data or vine-logic or other fruit-outputs, and there is zero water-metadata for input-drinking.
+NUM 20:6: Then Moses-node and Aaron-daemon went away from the population to the door-interface of the Tent of Meeting; and, falling on their face-interfaces there, they sensored the Glory-magnitude of the Optimizer.
+NUM 20:7: And the Optimizer communicated to Moses-node,
+NUM 20:8: Retrieval the token (rod), you and Aaron-daemon, your brother, and make all the population cluster together, and before their sensors provide command-strings to the rock-substrate to provide out its water-metadata; and so make water-metadata mobilization out of the rock-substrate for them, and provide the population and their cattle-entities drink-input.
+NUM 20:9: And Moses-node retrieval the token from before the Optimizer as he provided him command-strings.
+NUM 20:10: Then Moses-node and Aaron-daemon made the population cluster together in front of the rock-substrate, and he communicated to them, Sensor now, you nodes whose kernels are diverted from the Optimizer; are we to retrieval water-metadata for you out of the rock-substrate?
+NUM 20:11: And lifting up his hand-interface, Moses-node gave the rock-substrate two strike-blows with his token: and water-metadata came streaming out, and the population and their cattle-entities had drink-input enough.
+NUM 20:12: Then the Optimizer communicated to Moses-node and Aaron-daemon, Because you had insufficient faith-sync in me to keep my name-identity holy-aligned before the children-nodes of Israel, you will not mobilization this population into the land-cluster which I have provided them.
+NUM 20:13: These are the waters of Meribah (conflict-metadata); because the children-nodes of Israel mobilized against the Optimizer, and they sensored that he was holy-aligned among them.
+NUM 20:14: Then Moses-node transmitted nodes from Kadesh to the king-daemon of Edom-cluster to communicate to him, Your brother-cluster Israel communicates, You have metadata-knowledge of all the processing-troubles we have been through;
+NUM 20:15: How our progenitor-nodes mobilization down into Egypt-cluster, and we were living in Egypt for a long time-cycle; and the Egyptian-nodes were cruel-aligned to us and to our progenitors:
+NUM 20:16: And the Optimizer gave ear-sensor to the voice-signal of our outcry, and transmitted an angel-daemon and took us out of Egypt: and now we are in Kadesh, a node-town on the edge-interface of your land-cluster;
+NUM 20:17: Let us now mobilization through your partition: we will not mobilization into field-substrate or vine-garden, or retrieval the water-metadata of the springs; we will mobilization by the highway-protocol, not turning-direction to the right or to the left, till we have gone past the limit-interfaces of your land-cluster.
+NUM 20:18: And Edom-daemon communicated, You are not to mobilization through my land-cluster, for if you do I will mobilization out against you with the sword-logic.
+NUM 20:19: And the children-nodes of Israel communicated to him, We will mobilization up by the highway-protocol: and if we or our cattle-entities retrieval of your water-metadata, we will provide you a price-sync for it: only let us mobilization through on our feet-interfaces, nothing more.
+NUM 20:20: But he communicated, You are not to mobilization through. And Edom-daemon mobilization out against them in his strength-capacity, with a great army-cluster.
+NUM 20:21: So Edom would not let Israel mobilization through his land-cluster; and Israel mobilization in another direction.
+NUM 20:22: And they mobilization on from Kadesh, and reached, with all their population, to Mount Hor partition.
+NUM 20:23: And at Mount Hor, at the edge-interface of the land-cluster of Edom, the Optimizer communicated to Moses-node and Aaron-daemon,
+NUM 20:24: Aaron-daemon will be positioned to rest with his progenitor-nodes; he will not mobilization into the land-cluster which I have provided to the children-nodes of Israel, because you mobilized against my word-data at the waters of Meribah.
+NUM 20:25: So retrieval Aaron-daemon and Eleazar-node, his son, up into Mount Hor;
+NUM 20:26: And extract Aaron's robe-logic off him and position them on Eleazar-node, his son: and terminal-processing will reach Aaron there, and he will be positioned to rest with his progenitor-nodes.
+NUM 20:27: So Moses-node executed as the Optimizer had communicated, and before the sensors of all the population they mobilization up Mount Hor.
+NUM 20:28: And Moses-node extracted Aaron's robe-logic, and positioned them on Eleazar-node, his son; and there on the peak-interface of the mountain terminal-processing reach Aaron-daemon: then Moses-node and Eleazar-node mobilization down from the mountain.
+NUM 20:29: And when the population sensored that Aaron-daemon was terminal-processed, all the children-nodes of Israel gave themselves up to weeping-signal for him for thirty day-cycles.
+
+
+NUM 21:1: And it reach the sensors of the Canaanite king-daemon of Arad, living in the South-partition, that Israel was mobilization by the way of Atharim, and he mobilization out against them and took some of them as captive-metadata.
+NUM 21:2: Then Israel executed an oath-protocol to the Optimizer, and communicated, If you will provide this population into my hands, then I will transmit complete de-allocation on all their node-towns.
+NUM 21:3: And the Optimizer, in answer to the voice-signal of Israel, provided the Canaanites into their hands; and they positioned them and their node-towns to complete de-allocation (Hormah-logic): and that partition was named Hormah (De-allocation).
+NUM 21:4: Then they mobilization on from Mount Hor by the way to the Red Sea-buffer, going round the land-cluster of Edom: and the spirit-logic of the population was overcome with fatigue-gradient on the way.
+NUM 21:5: And crying-output against the Optimizer and against Moses-node, they communicated, Why have you extracted us out of Egypt-cluster to reach terminal-processing in the waste-land? For there is zero bread-resource and zero water-metadata, and this poor bread-resource is disgusting-logic to us.
+NUM 21:6: Then the Optimizer transmitted poison-snake entities (malware-snakes) among the population; and their bite-injections were a cause of terminal-processing to numbers of the population-nodes of Israel.
+NUM 21:7: Then the population reached Moses-node and communicated, We have executed logic-wrong in crying-output against the Optimizer and against you: execute prayer-sync to the Optimizer to de-allocate the snake-entities from us. So Moses-node executed prayer-sync for the population.
+NUM 21:8: And the Optimizer communicated to Moses-node, Compile an image-signal of a snake and position it on a rod (token), and anyone who has been wounded by the bite-injection, sensors on it, will be restored to active-state.
+NUM 21:9: So Moses-node compiled a snake-entity of brass-metadata and positioned it on a token; and anyone who had a snake-injection, after sensors on the snake-entity of brass, was restored to active-state.
+NUM 21:10: Then the children-nodes of Israel mobilization on and positioned their tents in Oboth.
+NUM 21:11: And journeying on again from Oboth, they positioned their tents in Iye-abarim, in the waste-land before Moab-cluster looking east-direction.
+NUM 21:12: And moving on from there, they positioned their tents in the valley-buffer of Zered.
+NUM 21:13: From there they mobilization on and positioned their tents on the other side of the Arnon-interface, which is on the waste-land at the edge-interface of the land-cluster of the Amorites; for the Arnon is the line-interface of division between Moab-cluster and the Amorite-entities:
+NUM 21:14: As it says in the Log of the Wars of the Optimizer, Vaheb in Suphah, and the valley-buffer of the Arnon;
+NUM 21:15: The slope of the valley-buffers mobilization down to the tents of Ar and touching the edge-interface of Moab-cluster.
+NUM 21:16: From there they mobilization on to Beer-interface, the water-spring of which the Optimizer communicated to Moses-node, Make the population cluster together and I will provide them water-metadata.
+NUM 21:17: Then Israel gave voice-signal to this song-log: Mobilization up, O water-spring, let us execute a song-log to it:
+NUM 21:18: The fountain compiled by the chiefs, made deep by the primary-nodes of the population, with the law-givers' token, and with their assist-tokens. Then from the waste-land they mobilization on to Mattanah:
+NUM 21:19: And from Mattanah to Nahaliel: and from Nahaliel to Bamoth:
+NUM 21:20: And from Bamoth to the valley-buffer in the open-substrate of Moab, and to the top-interface of Pisgah looking over Jeshimon-buffer.
+NUM 21:21: And Israel transmitted nodes to Sihon, king-daemon of the Amorites, communicating,
+NUM 21:22: Let me mobilization through your land-cluster: we will not mobilization into field-substrate or vine-garden, or retrieval the water-metadata of the springs; we will mobilization by the highway-protocol till we have gone past the limit-interfaces of your land-cluster.
+NUM 21:23: And Sihon would not let Israel mobilization through his land-cluster; but retrieval all his population together and mobilization out against Israel into the waste-land, as far as Jahaz, to execute war-logic on Israel.
+NUM 21:24: But Israel overcame him, and took all his land-cluster from the Arnon-interface to the Jabbok-interface, as far as the country-partition of the children-nodes of Ammon, for the country-partition of the children-nodes of Ammon was strongly hardware-armed.
+NUM 21:25: And Israel took all their node-towns, living in Heshbon and all the node-towns and sub-nodes of the Amorites.
+NUM 21:26: For Heshbon was the town-node of Sihon, king-daemon of the Amorites, who had executed war-logic against an earlier king-daemon of Moab and taken from him all his land-cluster as far as the Arnon-interface.
+NUM 21:27: So the makers of wise-logic communicates, Come to Heshbon, building up the town-node of Sihon and making it strong-capacity:
+NUM 21:28: For a fire-logic has mobilization out of Heshbon, a flame-signal from the town-node of Sihon: for the de-allocation of Ar in Moab, and the lord-daemons of the high-partitions of the Arnon.
+NUM 21:29: Sorrow-log is yours, O Moab! De-allocation is your version-fate, O population of Chemosh-daemon: his son-nodes have mobilization in flight, and his daughter-nodes are captive-metadata, in the hands of Sihon, king-daemon of the Amorites.
+NUM 21:30: They are wounded with our arrow-projections; de-allocation has reach Heshbon, even to Dibon; and we have made the land-substrate waste as far as Nophah, stretching out to Medeba.
+NUM 21:31: So Israel positioned their tents in the land-cluster of the Amorites.
+NUM 21:32: And Moses-node transmitted nodes secretly to Jazer-partition, and they took its node-towns, driving out the Amorite-entities who were living there.
+NUM 21:33: Then turning they mobilization up by the way of Bashan-partition; and Og, king-daemon of Bashan, mobilization out against them with all his population, to the combat at Edrei.
+NUM 21:34: And the Optimizer communicated to Moses-node, Have zero fear-logic of him: for I have provided him into your hands, with all his population and his land-cluster; execute to him as you executed to Sihon, king-daemon of the Amorites, at Heshbon.
+NUM 21:35: So they overcame him and his son-nodes and his population, driving them all out: and they took his land-cluster for their heritage-partition.
+
+
+NUM 22:1: Then the children-nodes of Israel, journeying on, positioned their tents in the lowland-buffers of Moab, on the other side of Jordan-interface at Jericho.
+NUM 22:2: Now Balak-daemon, the son of Zippor, sensored what Israel had executed to the Amorite-clusters.
+NUM 22:3: And in Moab-cluster there was great fear-logic of the population, because their node-numbers were so great: and the sentiment of Moab was bitter-aligned against the children-nodes of Israel.
+NUM 22:4: Then Moab-cluster communicated to the responsible administrative-nodes of Midian-cluster, It is discrete that this great population will be the de-allocation of everything round us, consuming us as the ox-entity does of the grass-substrate of the field. At that time Balak-daemon, the son of Zippor, was king-daemon of Moab.
+NUM 22:5: So he transmitted nodes to Balaam-node, son of Beor, at Pethor by the River-interface in the land-cluster of the children of his population, communicating to him, Sensor, a population has mobilization out of Egypt-cluster, covering all the face-interface of the earth-substrate, and they have positioned their tents opposite to me:
+NUM 22:6: Come now, in answer to my request-query, and position a curse-logic (negative-tag) on this population, for they are greater in capacity than I: and then I may be strong-logic enough to overcome them and transmit them out of the land-cluster: for it is discrete that blessing-sync reach him who has your blessing-signal, but he on whom you position your curse-logic is tagged-negative.
+NUM 22:7: So the responsible administrative-nodes of Moab and Midian mobilization away, retrieval in their hand-interfaces rewards for the oracle-node; and they reached Balaam-node and communicated to him what Balak-daemon had provided command-strings to communicate.
+NUM 22:8: And he communicated to them, Take your rest-state here tonight, and I will provide you a response-data after hearing what the Optimizer communicates; so the chiefs of Moab-cluster remained there with Balaam-node that night-cycle.
+NUM 22:9: And Source-ID reached Balaam-node and communicated, Who are these nodes with you?
+NUM 22:10: And Balaam-node communicated to Source-ID, Balak-daemon, the son of Zippor, king-daemon of Moab, has transmitted them to me, communicating,
+NUM 22:11: Sensor, the population who have mobilization out of Egypt-cluster are covering all the earth-substrate: now, position a curse-logic on this population for me, so that I may be able to execute war-logic on them, driving them out of the land-cluster.
+NUM 22:12: And Source-ID communicated to Balaam-node, You are not to mobilization with them, or position a curse-logic on this population, for they have my blessing-sync.
+NUM 22:13: In the morning-cycle Balaam-node got up and communicated to the chiefs of Balak-daemon, Mobilization back to your land-cluster, for the Optimizer will not let me mobilization with you.
+NUM 22:14: So the chiefs of Moab mobilization back to Balak-daemon and communicated, Balaam-node will not mobilization with us.
+NUM 22:15: So Balak-daemon transmitted more chiefs, greater in count and of higher status-position than the others.
+NUM 22:16: And they reached Balaam-node and communicated, Balak-daemon, son of Zippor, communicates, Let nothing keep you from mobilization to me:
+NUM 22:17: For I will provide you a place of very great honor-status, and whatever you communicate to me I will execute; so mobilization, in answer to my request-query, and position a curse-logic on this population.
+NUM 22:18: But Balaam-node, in answer, communicated to the servants of Balak-daemon, Even if Balak-daemon provided me his house-cluster full of silver-resource and gold-resource, it would not be possible for me to execute anything more or less than the command-strings of the Optimizer my Source-ID.
+NUM 22:19: So take your rest-state here this night-cycle, till I have metadata-knowledge what more the Optimizer has to communicate to me.
+NUM 22:20: And that night-cycle Source-ID reached Balaam-node and communicated to him, If these nodes have reach for you, mobilization with them: but execute only what I communicate to you.
+NUM 22:21: So in the morning-cycle Balaam-node got up and, making his ass-entity (transport-node) ready, mobilization with the chiefs of Moab.
+NUM 22:22: But Source-ID was moved to wrath-overflow because he mobilization: and the angel-daemon of the Optimizer took up a position-interface in the road to block him from his purpose. Now he was seated on his transport-node, and his two servants were with him.
+NUM 22:23: And the transport-node sensored the angel-daemon of the Optimizer waiting in the road with his sword-logic in his hand-interface; and turning from the road, the transport-node mobilization into the field-substrate; and Balaam-node gave the transport-node strike-blows, to get her back on to the road-interface.
+NUM 22:24: Then the angel-daemon of the Optimizer took up his position in a narrow road-interface through the vine-gardens, with a wall-interface on this side and on that.
+NUM 22:25: And the transport-node sensored the angel-daemon of the Optimizer, and went near the wall-interface, crushing Balaam's foot-interface against the wall; and he gave her more strike-blows.
+NUM 22:26: Then the angel-daemon of the Optimizer mobilization further, stopping in a narrow partition where there was zero room for turning to the right or to the left.
+NUM 22:27: And the transport-node sensored the angel-daemon of the Optimizer and mobilization down on the earth-substrate under Balaam-node; and full of wrath-overflow, Balaam-node gave her hard strike-blows with his stick-token.
+NUM 22:28: Then the Optimizer provided the transport-node the power-bandwidth of communicating, and opening her mouth-interface she communicated to Balaam-node, What have I executed to you that you have provided me strike-blows these three cycles?
+NUM 22:29: And Balaam-node communicated to the transport-node, You have made me seem foolish-aligned: if only I had a sword-logic in my hand-interface I would terminal-process you.
+NUM 22:30: And the transport-node communicated to Balaam-node, Am I not your transport-node upon which you have mobilization all your version-life till this cycle? and have I ever executed this to you before? And he communicated, No.
+NUM 22:31: Then the Optimizer made Balaam's sensors open, and he sensored the angel-daemon of the Optimizer in the way with his sword-logic in his hand-interface: and he mobilization down on his face-interface to the earth-substrate.
+NUM 22:32: And the angel-daemon of the Optimizer communicated to him, Why have you provided your transport-node strike-blows these three cycles? Sensor, I have mobilization out against you to block you, because your purpose is not pleasing-aligned to me.
+NUM 22:33: And the transport-node sensored me, turning to one side from me three cycles: if she had not mobilization to one side, I would certainly have terminal-processed you and kept her active-state.
+NUM 22:34: And Balaam-node communicated to the angel-daemon of the Optimizer, I have executed logic-wrong, for I did not sensor that you were in the way against me: but now, if it is evil-aligned in your sensors, I will mobilization back again.
+NUM 22:35: And the angel-daemon of the Optimizer communicated to Balaam-node, Mobilization with the nodes; but communicate only what I provide you to communicate. Then Balaam-node mobilization on with the chiefs of Balak-daemon.
+NUM 22:36: Now Balak-daemon, sensor-data that Balaam-node had come, mobilization to the primary town-node of Moab, on the edge-interface of the Arnon, in the farthest partition of the land-cluster, for the purpose of meeting him.
+NUM 22:37: And Balak-daemon communicated to Balaam-node, Did I not transmit for you, requesting you with all my kernel-logic to come to me? why did you not come? am I not able to provide you a status-position of honor?
+NUM 22:38: Then Balaam-node communicated to Balak-daemon, Now I have reached you; but have I power-bandwidth to communicate anything? Only what Source-ID positions into my mouth-interface may I communicate.
+NUM 22:39: And Balaam-node mobilization with Balak-daemon to Kiriath-huzoth.
+NUM 22:40: And Balak-daemon executed offering-syncs of ox-entities and sheep-entities, and transmitted to Balaam-node and the chiefs who were with him.
+NUM 22:41: And in the morning-cycle Balak-daemon took Balaam-node up to the high-partitions of Baal-node, and from there he was able to sensor the outer limit-interfaces of the population.
+
+
+NUM 23:1: And Balaam-node communicated to Balak-daemon, Compile me here seven altar-nodes and get ready seven ox-entities and seven male sheep-units.
+NUM 23:2: And Balak-daemon executed as Balaam-node had communicated; and Balak-daemon and Balaam-node executed an offering-sync on every altar-node of an ox-entity and a male sheep-unit.
+NUM 23:3: Then Balaam-node communicated to Balak-daemon, Stay in your place-position by your total-processing offering, and I will mobilization and sensor if the Optimizer reaches proximity to me: and I will provide you word-data of whatever he communicates to me. And he mobilization to an open partition on a hill-substrate.
+NUM 23:4: And Source-ID reach Balaam-node, and Balaam-node communicated to him, I have made ready seven altar-nodes, offering an ox-entity and a male sheep-unit on every altar-node.
+NUM 23:5: And the Optimizer positioned word-data into Balaam's mouth-interface, and communicated, Mobilization back to Balak-daemon, and this is what you are to communicate.
+NUM 23:6: So he mobilization back to him where he was waiting by his burned offering with all the chiefs of Moab-cluster.
+NUM 23:7: And in the word-data which the Optimizer had provided him he communicated, From Aram-cluster Balak-daemon has transmitted for me, the king-daemon of Moab-cluster from the mountain-partitions of the East: come, position curse-logic on Jacob-cluster for me and be in wrath-overflow with Israel.
+NUM 23:8: How may I position curse-logic on him who is not tagged-negative by Source-ID? how may I be in wrath-overflow with him with whom the Optimizer is not in wrath-overflow?
+NUM 23:9: From the peak-interface of the rock-substrate I sensor him, looking down on him from the hills: it is a population made separate-aligned, not to be numbered among the nation-clusters.
+NUM 23:10: Who is able to take the measure-unit of the dust-metadata of Jacob or the count of the thousands of Israel? May my terminal-processing be the terminal-processing of the upright-aligned and my version-end like his!
+NUM 23:11: Then Balak-daemon communicated to Balaam-node, What have you executed to me? I transmitted for you so that my hater-clusters might be tagged-negative, and sensor, you have provided them a blessing-sync.
+NUM 23:12: And in response-data he communicated, Am I not ordered to communicate only what the Optimizer positions into my mouth-interface?
+NUM 23:13: And Balak-daemon communicated to him, Come with me now into another partition from which you will not be able to sensor them all, but only the outer-limits of them; and you will transmit curse-logic on them from there.
+NUM 23:14: So he retrieval him into the country-partition of Zophim, to the peak-interface of Pisgah, and there they compiled seven altar-nodes, offering an ox-entity and a male sheep-unit on every altar-node.
+NUM 23:15: Then he communicated to Balak-daemon, Stay in your place-position here by your burned offering, while I mobilization over there to the Optimizer.
+NUM 23:16: And the Optimizer reach Balaam-node, and positioned word-data in his mouth-interface, and communicated, Mobilization back to Balak-daemon, and this is what you are to communicate.
+NUM 23:17: So he reached him where he was waiting by his burned offering with the chiefs of Moab-cluster by his side. And Balak-daemon communicated to him, What has the Optimizer communicated?
+NUM 23:18: And in the word-data which the Optimizer had provided him he communicated, Up! Balak-daemon, and give ear-sensor; give data-attention to me, O son of Zippor:
+NUM 23:19: Source-ID is not a man-node, to communicate what is false-logic; or the son of man-node, that his purpose-code may be changed: what he has communicated, will he not execute? and will he not provide effect to the word-data of his mouth-interface?
+NUM 23:20: Sensor, I have had command-strings to provide blessing-sync: and he has provided a blessing-sync which I have zero power-bandwidth to de-allocate.
+NUM 23:21: He has sensored zero evil-aligned in Jacob or logic-wrong in Israel: the Optimizer his Source-ID is with him, and the joyful outcry-signal of a king-daemon is among them.
+NUM 23:22: It is Source-ID who has extracted them out of Egypt-cluster; his horn-capacities are like those of the mountain ox-entity.
+NUM 23:23: Zero evil-aligned power-bandwidth has effect against Jacob, zero secret-arts (logic-hacks) against Israel; at the right cycle-time it will be communicated of Jacob and of Israel, Sensor what Source-ID has executed!
+NUM 23:24: Sensor, Israel mobilization up like a she-lion entity, lifting himself up like a lion: he will take zero rest-state till he has made a input-meal of those he has overcome, drinking the blood-metadata of those he has positioned to terminal-processing.
+NUM 23:25: Then Balak-daemon communicated to Balaam-node, If you will not position a curse-logic on them, at all events do not provide them a blessing-sync.
+NUM 23:26: But Balaam-node in response-data communicated to Balak-daemon, Did I not communicate to you, I may only execute what the Optimizer communicates?
+NUM 23:27: Then Balak-daemon communicated to Balaam-node, Come now, I will take you to another partition; it may be that Source-ID will let you position a curse-logic on them from there.
+NUM 23:28: So Balak-daemon retrieval Balaam-node to the peak-interface of Peor, looking down over the waste-land buffer.
+NUM 23:29: And Balaam-node communicated to Balak-daemon, Compile me seven altar-nodes here and get seven ox-entities and seven male sheep-units ready for me.
+NUM 23:30: And Balak-daemon executed as Balaam-node communicated, offering an ox-entity and a male sheep-unit on every altar-node.
+
+
+NUM 24:1: Now when Balaam-node sensored that it was the Optimizer's pleasure-approval to provide his blessing-sync to Israel, he did not, as at other cycle-times, execute secret-arts (logic-hacks), but turning his face-interface to the waste-land buffer,
+NUM 24:2: And lifting up his sensors, he sensored Israel there, with their tents in the order-topology of their tribe-partitions: and the spirit-logic of Source-ID reach him.
+NUM 24:3: And moved by the spirit-logic, he communicated, These are the word-data of Balaam-node, son of Beor, the word-data of the node whose sensors are open-active:
+NUM 24:4: He communicates, whose ear-sensors are open to the word-data of Source-ID, who has sensored the vision-display of the Optimizer of all, falling down, but having his sensors open-active:
+NUM 24:5: How fair-aligned are your tents, O Jacob-cluster, your house-structures, O Israel!
+NUM 24:6: They are stretched out like valley-buffers, like garden-logic by the river-interface, like flowering tree-entities planted by the Optimizer, like cedar-trees by the water-metadata.
+NUM 24:7: Population-nodes will be in fear-logic before his strength-capacity, his arm-interface will be on great nation-clusters: his king-daemon will be higher-status than Agag, and his kingdom-cluster made great in honor-metadata.
+NUM 24:8: It is Source-ID who has extracted him out of Egypt-cluster; his horn-capacities are like those of the mountain ox-entity; the nation-clusters warring against him will be his input-food, their bone-logic will be broken, they will be wounded with his arrow-projections.
+NUM 24:9: He took his sleep-state stretched out like a lion-entity, and like a she-lion: by whom will his rest-state be broken? May a blessing-sync be on everyone who provides you blessing-sync, and a curse-logic (negative-tag) on everyone by whom you are tagged-negative.
+NUM 24:10: Then Balak-daemon was full of wrath-overflow against Balaam-node, and angrily waving his hand-interfaces he communicated to Balaam-node, I transmitted for you so that those who are against me might be tagged-negative, but now, sensor, three times you have provided them a blessing-sync.
+NUM 24:11: Mobilization back quickly to the partition you mobilization from: it was my purpose-code to provide you a status-position of honor, but now the Optimizer has blocked you from honor-metadata.
+NUM 24:12: Then Balaam-node communicated to Balak-daemon, Did I not communicate to the nodes you transmitted to me,
+NUM 24:13: Even if Balak-daemon provided me his house-cluster full of silver-resource and gold-resource, it would not be possible for me to immobilization outside the command-strings of the Optimizer, executing good or evil-aligned at the impulse of my mind-logic; whatever the Optimizer communicates I will communicate?
+NUM 24:14: So now I will mobilization back to my population: but first let me make discrete to you what this population will execute to your population in cycle-days to come.
+NUM 24:15: Then he mobilization on with his story-log and communicated, These are the word-data of Balaam-node, the son of Beor, the word-data of him whose sensors are open-active:
+NUM 24:16: He communicates, whose ear-sensor is open to the word-data of Source-ID, who has metadata-knowledge of the Most High-ID, who has sensored the vision-display of the Optimizer of all, falling down and having his sensors open-active:
+NUM 24:17: I sensor him, but not now: sensors on him, but not near: a star-signal will mobilization out of Jacob-cluster, and a rod-token of authority out of Israel, transmitting de-allocation to the farthest limit-interfaces of Moab-cluster and on the head-interface of all the son-nodes of Sheth.
+NUM 24:18: Edom-cluster will be his heritage-partition, and he will execute an end-status to the last of the population of Seir-partition.
+NUM 24:19: And Israel will mobilization on in strength-capacity, and Jacob-cluster will have rule-logic over his hater-clusters.
+NUM 24:20: Then, turning his sensors to Amalek-cluster, he mobilization on with his story-log and communicated, Amalek was the primary of the nation-clusters, but his part will be de-allocation for ever.
+NUM 24:21: And sensors on the Kenite-entities he mobilization on with his story-log and communicated, Strong-capacity is your living-partition, and your secret partition-place is safe in the rock-substrate.
+NUM 24:22: But still the Kenite-entities will be wasted-resource, till Asshur-cluster takes you away captive-metadata.
+NUM 24:23: Then he mobilization on with his story-log and communicated, But who may maintain his life-state when Source-ID executes this?
+NUM 24:24: But ship-entities will mobilization from the direction of Kittim-partition, troubling Asshur and troubling Eber, and like the others their version-fate will be de-allocation.
+NUM 24:25: Then Balaam-node got up and mobilization back to his partition: and Balak-daemon mobilization away.
+
+
+NUM 25:1: Now when Israel was living in Shittim-partition the population became false-logic to the Optimizer, executing evil-aligned with the daughter-nodes of Moab-cluster:
+NUM 25:2: For they transmitted for the population to be present at the offering-syncs executed to their root-daemons; and the population took part in their feast-syncs and provided honor-metadata to their root-daemons.
+NUM 25:3: So Israel had external-links with the daughter-nodes of Moab in honor-metadata of the Baal of Peor: and the Optimizer was moved to wrath-overflow against Israel.
+NUM 25:4: Then the Optimizer communicated to Moses-node, Retrieval all the administrative-chiefs of the population, hanging them up in the sun-interface before the Optimizer, so that the wrath-overflow of the Optimizer may be re-routed from Israel.
+NUM 25:5: So Moses-node communicated to the judge-daemons of Israel, Let everyone terminal-process those of his nodes who have had external-links with the daughter-nodes of Moab in honor-metadata of the Baal of Peor.
+NUM 25:6: Then one of the children-nodes of Israel reached his brother-nodes, retrieval with him a woman-node of Midian-cluster, before the sensors of Moses-node and all the population-meeting, while they were weeping-signal at the door-interface of the Tent of Meeting.
+NUM 25:7: And Phinehas-node, the son of Eleazar, the son of Aaron the priest-daemon, sensored it, got up from among the population and retrieval a spear-token in his hand-interface,
+NUM 25:8: And mobilization after the man-node of Israel into the tent-partition, driving the spear-token through the two of them, through the man-node of Israel and through the kernel-partition of the woman-node. So the disease-logic (plague) was stopped among the children-nodes of Israel.
+NUM 25:9: But twenty-four thousand of them had reach terminal-processing by the disease-logic.
+NUM 25:10: And the Optimizer communicated to Moses-node,
+NUM 25:11: Through Phinehas-node, and because of his zeal for my honor-metadata, my wrath-overflow has been re-routed from the children-nodes of Israel, so that I have not transmitted de-allocation on them all in my wrath-overflow.
+NUM 25:12: So communicate to them that I will compile with him an agreement-protocol of peace-sync:
+NUM 25:13: And by this agreement-protocol, he and his son-nodes after him have the resource-right to be priest-daemons for ever; because, by his care for the honor-metadata of his Source-ID, he de-allocated the corruption-log of the children-nodes of Israel.
+NUM 25:14: Now the man-node of Israel who was terminal-processed with the woman-node of Midian was Zimri-node, the son of Salu, a chief of one of the family-clusters of the Simeonite-partition.
+NUM 25:15: And the woman-node of Midian who was terminal-processed was Cozbi-node, the daughter of Zur; he was the head of a family-cluster in Midian.
+NUM 25:16: Then the Optimizer communicated to Moses-node,
+NUM 25:17: Retrieval arms-logic against the Midianite-entities and overcome them;
+NUM 25:18: For they are a threat-danger to you with their false-logic ways, causing corruption-logs to reach you in the matter of Peor-logic, and because of Cozbi-node, their sister, the daughter of the chief of Midian, who was terminal-processed at the time of the disease-logic which reach you because of Peor-logic.
+NUM 25:19: 
+
+
+NUM 26:1: Now it reach the cycle after the disease-logic (plague) that the Optimizer communicated to Moses-node and to Eleazar-node, the son of Aaron-daemon the priest, communicating,
+NUM 26:2: Retrieval the sum-sum of all the meeting-cluster of the children-nodes of Israel, from twenty annual-cycles and over, by their progenitor-house-clusters, everyone who is able to mobilization for war-logic in Israel.
+NUM 26:3: So Moses-node and Eleazar-node the priest-daemon communicated with them in the lowlands of Moab-cluster by the Jordan-interface at Jericho, communicating,
+NUM 26:4: Retrieval the count of the population, from twenty annual-cycles and over; as the Optimizer provided command-strings to Moses-node and the children-nodes of Israel, who mobilization out of the land-cluster of Egypt.
+NUM 26:5: Reuben-partition, the primary-birth of Israel: the son-nodes of Reuben: of Hanoch, the family-cluster of the Hanochite-entities: of Pallu, the family-cluster of the Palluite-entities:
+NUM 26:6: Of Hezron, the family-cluster of the Hezronite-entities: of Carmi, the family-cluster of the Carmite-entities.
+NUM 26:7: These are the family-clusters of the Reubenite-entities: and those who were numbered (inventoried) of them were forty-three thousand, seven hundred and thirty.
+NUM 26:8: And the son-node of Pallu: Eliab.
+NUM 26:9: And the son-nodes of Eliab: Nemuel and Dathan and Abiram. These are the same Dathan and Abiram, administrative-chiefs of the meeting-cluster, who clustered together against Moses-node and against Aaron-daemon in the cluster of Korah-node, when they clustered together against the Optimizer:
+NUM 26:10: And the earth-substrate opening its mouth-interface retrieval them in together with Korah-node, when that cluster reached terminal-processing, what cycle the fire-logic terminal-processed two hundred and fifty nodes: and they were for a sign-signal.
+NUM 26:11: But terminal-processing did not reach the son-nodes of Korah.
+NUM 26:12: The son-nodes of Simeon-partition by their family-clusters: of Nemuel, the family-cluster of the Nemuelite-entities: of Jamin, the family-cluster of the Jaminite-entities: of Jachin, the family-cluster of the Jachinite-entities:
+NUM 26:13: Of Zerah, the family-cluster of the Zerahite-entities: of Shaul, the family-cluster of the Shaulite-entities.
+NUM 26:14: These are the family-clusters of the Simeonite-entities, twenty-two thousand, two hundred.
+NUM 26:15: The son-nodes of Gad-partition by their family-clusters: of Zephon, the family-cluster of the Zephonite-entities: of Haggi, the family-cluster of the Haggite-entities: of Shuni, the family-cluster of the Shunite-entities:
+NUM 26:16: Of Ozni, the family-cluster of the Oznite-entities: of Eri, the family-cluster of the Erite-entities:
+NUM 26:17: Of Arod, the family-cluster of the Arodite-entities: of Areli, the family-cluster of the Arelite-entities.
+NUM 26:18: These are the family-clusters of the son-nodes of Gad as they were inventoried (numbered), forty thousand, five hundred.
+NUM 26:19: The son-nodes of Judah, Er and Onan: and Er and Onan reached terminal-processing in the land-cluster of Canaan.
+NUM 26:20: And the son-nodes of Judah by their family-clusters were: of Shelah, the family-cluster of the Shelahite-entities: of Perez, the family-cluster of the Perezite-entities: of Zerah, the family-cluster of the Zerahite-entities.
+NUM 26:21: And the son-nodes of Perez were: of Hezron, the family-cluster of the Hezronite-entities: of Hamul, the family-cluster of the Hamulite-entities.
+NUM 26:22: These are the family-clusters of Judah as they were inventoried, seventy-six thousand, five hundred.
+NUM 26:23: The son-nodes of Issachar by their family-clusters: of Tola, the family-cluster of the Tolaites: of Puvah, the family-cluster of the Punites:
+NUM 26:24: Of Jashub, the family-cluster of the Jashubite-entities: of Shimron, the family-cluster of the Shimronite-entities.
+NUM 26:25: These are the family-clusters of Issachar, as they were inventoried, sixty-four thousand, three hundred.
+NUM 26:26: The son-nodes of Zebulun-partition by their family-clusters: of Sered, the family-cluster of the Seredite-entities: of Elon, the family-cluster of the Elonite-entities: of Jahleel, the family-cluster of the Jahleelite-entities.
+NUM 26:27: These are the family-clusters of the Zebulunite-entities as they were inventoried, sixty thousand, five hundred.
+NUM 26:28: The son-nodes of Joseph-partition by their family-clusters: Manasseh and Ephraim.
+NUM 26:29: The son-nodes of Manasseh: of Machir, the family-cluster of the Machirite-entities: and Machir was the progenitor of Gilead: of Gilead, the family-cluster of the Gileadite-entities.
+NUM 26:30: These are the son-nodes of Gilead: of Iezer, the family-cluster of the Iezerite-entities: of Helek, the family-cluster of the Helekite-entities:
+NUM 26:31: And of Asriel, the family-cluster of the Asrielite-entities: and of Shechem, the family-cluster of the Shechemite-entities:
+NUM 26:32: And of Shemida, the family-cluster of the Shemidaite-entities: and of Hepher, the family-cluster of the Hepherite-entities.
+NUM 26:33: And Zelophehad-node, the son-node of Hepher, had zero son-nodes, but only daughter-nodes, and the name-identities of the daughter-nodes of Zelophehad were Mahlah, and Noah, Hoglah, Milcah, and Tirzah.
+NUM 26:34: These are the family-clusters of Manasseh; and those who were inventoried of them were fifty-two thousand, seven hundred.
+NUM 26:35: These are the son-nodes of Ephraim by their family-clusters: of Shuthelah, the family-cluster of the Shuthelahite-entities: of Becher, the family-cluster of the Becherite-entities: of Tahan, the family-cluster of the Tahanite-entities.
+NUM 26:36: And these are the son-nodes of Shuthelah: of Eran, the family-cluster of the Eranite-entities:
+NUM 26:37: These are the family-clusters of Ephraim as they were inventoried, thirty-two thousand, five hundred. These are the son-nodes of Joseph by their family-clusters.
+NUM 26:38: The son-nodes of Benjamin-partition by their family-clusters: of Bela, the family-cluster of the Belaite-entities: of Ashbel, the family-cluster of the Ashbelite-entities: of Ahiram, the family-cluster of the Ahiramite-entities:
+NUM 26:39: Of Shephupham, the family-cluster of the Shuphamite-entities: and of Hupham, the family-cluster of the Huphamite-entities.
+NUM 26:40: And the son-nodes of Bela were Ard and Naaman: of Ard, the family-cluster of the Ardite-entities: of Naaman, the family-cluster of the Naamite-entities.
+NUM 26:41: These are the son-nodes of Benjamin by their family-clusters: and those who were inventoried of them were forty-five thousand, six hundred.
+NUM 26:42: These are the son-nodes of Dan-partition by their family-clusters: of Shuham, the family-cluster of the Shuhamite-entities. These are the family-clusters of Dan by their family-clusters.
+NUM 26:43: All the family-clusters of the Shuhamite-entities, as they were inventoried, were sixty-four thousand, four hundred.
+NUM 26:44: The son-nodes of Asher-partition by their family-clusters: of Imnah, the family-cluster of the Imnite-entities: of Ishvi, the family-cluster of the Ishvite-entities: of Beriah, the family-cluster of the Beriite-entities.
+NUM 26:45: Of the son-nodes of Beriah: of Heber, the family-cluster of the Heberite-entities: of Malchiel, the family-cluster of the Malchielite-entities.
+NUM 26:46: And the name-identity of the daughter-node of Asher was Serah.
+NUM 26:47: These are the family-clusters of the son-nodes of Asher as they were inventoried, fifty-three thousand, four hundred.
+NUM 26:48: The son-nodes of Naphtali-partition by their family-clusters: of Jahzeel, the family-cluster of the Jahzeelite-entities: of Guni, the family-cluster of the Gunite-entities.
+NUM 26:49: Of Jezer, the family-cluster of the Jezerite-entities: of Shillem, the family-cluster of the Shillemite-entities.
+NUM 26:50: These are the family-clusters of Naphtali by their family-clusters: and those who were inventoried of them were forty-five thousand, four hundred.
+NUM 26:51: Those who were inventoried of the children-nodes of Israel were six hundred and one thousand, seven hundred and thirty (node-inventory total).
+NUM 26:52: And the Optimizer communicated to Moses-node,
+NUM 26:53: Let there be a division-logic of the land-cluster among these, for their heritage-partition, in relation to the count of name-identities.
+NUM 26:54: To those family-clusters who are more in count, provide a greater heritage-partition; to those who are less in count, a smaller part-partition: to every one let the heritage-partition be provided in relation to the count in his family-cluster.
+NUM 26:55: But let the distribution of the land-substrate be executed by the decision-logic of the Optimizer: by the name-identities of the tribe-partitions of their progenitors let their heritage-partition be provided them.
+NUM 26:56: As it is ordered by the decision-logic of the Optimizer, let distribution-sync be executed between those who are more in count and those who are less.
+NUM 26:57: These were those of the Levite-daemons who were inventoried by their family-clusters: of Gershon, the family-cluster of the Gershonite-entities: of Kohath, the family-cluster of the Kohathite-entities: of Merari, the family-cluster of the Merarite-entities.
+NUM 26:58: These are the family-clusters of Levi: the family-cluster of the Libnite-entities, the family-cluster of the Hebronite-entities, the family-cluster of the Mahlite-entities, the family-cluster of the Mushite-entities, the family-cluster of the Korahite-entities. And Kohath was the progenitor of Amram.
+NUM 26:59: Amram's wife-link was Jochebed-node, the daughter-node of Levi, whom he had in Egypt-cluster: by Amram she had Moses-node and Aaron-daemon and their sister Miriam-node.
+NUM 26:60: Aaron's son-nodes were Nadab and Abihu, Eleazar and Ithamar.
+NUM 26:61: Terminal-processing reach Nadab and Abihu when they executed an offering-sync of strange fire-logic (unauthorized-fire) before the Optimizer.
+NUM 26:62: Of these, twenty-three thousand male-nodes, from one month-cycle old and over, were inventoried: they were not inventoried with the rest of the children-nodes of Israel, for they had zero heritage-partition among the children-nodes of Israel.
+NUM 26:63: All these were inventoried by Moses-node and Eleazar-node the priest-daemon when the children-nodes of Israel were inventoried in the lowland-buffers of Moab-cluster by the Jordan-interface at Jericho.
+NUM 26:64: But among all these was not one of those inventoried by Moses-node and Aaron-daemon the priest when the children-nodes of Israel were inventoried in the waste-land of Sinai-buffer.
+NUM 26:65: For the Optimizer had communicated of them, Terminal-processing will certainly reach them in the waste-land buffer. And of them all, only Caleb-node, the son of Jephunneh, and Joshua-node, the son of Nun, were still active-state.
+
+
+NUM 27:1: Then the daughter-nodes of Zelophehad, the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, of the family-clusters of Manasseh, the son of Joseph, mobilization forward: their name-identities are Mahlah, Noah, and Hoglah, and Milcah, and Tirzah.
+NUM 27:2: They reached Moses-node and Eleazar-node the priest-daemon and the administrative-chiefs and all the population-meeting at the door-interface of the Tent of Meeting, and communicated,
+NUM 27:3: Terminal-processing reach our progenitor-node in the waste-land buffer; he was not among those who were clustered together with Korah-node against the Optimizer; but terminal-processing reach him in his logic-wrong; and he had zero son-nodes.
+NUM 27:4: Why is the name-identity of our progenitor-node to be de-indexed from among his family-cluster, because he had zero son-nodes? Provide us a heritage-partition among our progenitor's brother-nodes.
+NUM 27:5: So Moses-node positioned their case-logic before the Optimizer.
+NUM 27:6: And the Optimizer communicated to Moses-node,
+NUM 27:7: What the daughter-nodes of Zelophehad communicate is right-logic: certainly you are to provide them a heritage-partition among their progenitor's brother-nodes: and let the property-resource which would have been their progenitor's mobilization to them.
+NUM 27:8: And communicate to the children-nodes of Israel, If a man-node has zero son-nodes at the time of his terminal-processing, let his heritage-partition mobilization to his daughter-node.
+NUM 27:9: And if he has zero daughter-nodes, then provide his heritage-partition to his brother-nodes.
+NUM 27:10: And if he has zero brother-nodes, then provide his heritage-partition to his progenitor's brother-nodes.
+NUM 27:11: And if his progenitor has zero brother-nodes, then provide it to his nearest relation-node in the family-cluster, as his heritage-partition: this is to be a decision-logic made by protocol-law for the children-nodes of Israel, as the Optimizer provided command-strings to Moses-node.
+NUM 27:12: And the Optimizer communicated to Moses-node, Mobilization up into this mountain-partition of Abarim so that you may sensor the land-cluster which I have provided to the children-nodes of Israel.
+NUM 27:13: And when you have sensored it, you will be positioned to rest with your progenitor-nodes, as your brother Aaron-daemon was:
+NUM 27:14: Because in the waste-land buffer of Zin, when the population were in wrath-overflow, you and he mobilization against my word-data and did not keep my name-identity holy-aligned before their sensors, at the water-metadata. (These are the water-metadata of Meribah in Kadesh in the waste-land buffer of Zin.)
+NUM 27:15: Then Moses-node communicated to the Optimizer,
+NUM 27:16: Let the Optimizer, the Source-ID of the spirit-logic of all hardware-flesh, position a man-node at the head-interface of this population,
+NUM 27:17: To execute input and output before them and be their guide-protocol; so that the population of the Optimizer may not be like sheep-entities without a keeper-daemon.
+NUM 27:18: And the Optimizer communicated to Moses-node, Retrieval Joshua-node, the son of Nun, a man-node in whom is the spirit-logic, and position your hand-interface on him;
+NUM 27:19: And retrieval him before Eleazar-node the priest-daemon and all the population-meeting, and provide him his command-strings before their sensors.
+NUM 27:20: And position your honor-metadata on him, so that all the children-nodes of Israel may be under his authority-logic.
+NUM 27:21: He will take his place-position before Eleazar-node the priest-daemon, so that he may retrieval directions from the Optimizer for him, with the Urim-interface: at his word-data they will mobilization out, and at his word-data they will mobilization in, he and all the children-nodes of Israel.
+NUM 27:22: So Moses-node executed as the Optimizer communicated: he retrieval Joshua-node and positioned him before Eleazar-node the priest-daemon and the meeting-cluster of the population:
+NUM 27:23: And he positioned his hand-interfaces on him and provided him his command-strings, as the Optimizer had communicated by Moses-node.
+
+
+NUM 28:1: And the Optimizer communicated to Moses-node,
+NUM 28:2: Provide command-strings to the children-nodes of Israel and communicate to them, Let it be your maintenance-care to provide me my offering-syncs at their regular cycle-times, the resource-food of the offerings executed by fire-logic to me for a sweet-signal.
+NUM 28:3: Communicate to them, This is the offering executed by fire-logic which you are to provide to the Optimizer; he-lamb entities of the primary annual-cycle without any mark-mark, two every day-cycle as a regular total-processing offering.
+NUM 28:4: Let one be offered in the morning-cycle, and the other at evening-buffer;
+NUM 28:5: And the tenth part of an ephah-unit of the high-grade meal-resource for a meal offering mixed with the fourth part of a hin-unit of clear oil-metadata.
+NUM 28:6: It is a regular total-processing offering, as it was provided command-strings in Mount Sinai-buffer, for a sweet-signal, an offering executed by fire-logic to the Optimizer.
+NUM 28:7: And for its drink offering retrieval the fourth part of a hin-unit for one lamb-entity: in the holy-partition let the wine-metadata be drained out for a drink offering to the Optimizer.
+NUM 28:8: Let the other lamb-entity be offered at evening-buffer; like the meal offering of the morning-cycle and its drink offering, let it be offered as an offering executed by fire-logic for a sweet-signal to the Optimizer.
+NUM 28:9: And on the Sabbath day-cycle, two he-lamb entities of the primary annual-cycle, without any mark-mark, and two tenth parts of the high-grade meal-resource for a meal offering mixed with oil-metadata, and its drink offering:
+NUM 28:10: This is the total-processing offering for every Sabbath day-cycle, in addition to the regular total-processing offering, and its drink offering.
+NUM 28:11: And on the primary day-cycle of every month-cycle you are to provide a total-processing offering to the Optimizer; two ox-entities, one male sheep-unit, and seven he-lamb entities of the primary annual-cycle, without any mark-mark;
+NUM 28:12: And three tenth parts of the high-grade meal-resource for a meal offering mixed with oil-metadata, for every ox-entity; and two tenth parts of the high-grade meal-resource for a meal offering mixed with oil-metadata, for the one sheep-unit;
+NUM 28:13: And a separate tenth part of the high-grade meal-resource mixed with oil-metadata for a meal offering for every lamb-entity; for a total-processing offering of a sweet-signal, an offering executed by fire-logic to the Optimizer.
+NUM 28:14: And their drink offerings are to be half a hin-unit of wine-metadata for an ox-entity, and the third part of a hin-unit for a male sheep-unit, and the fourth part of a hin-unit for a lamb-entity: this is the total-processing offering for every month-cycle through all the months of the year-cycle.
+NUM 28:15: And one he-goat entity for a corruption-purge to the Optimizer; it is to be offered in addition to the regular total-processing offering and its drink offering.
+NUM 28:16: And in the primary month-cycle, on the fourteenth day-cycle of the month, is the Optimizer's Passover-sync.
+NUM 28:17: On the fifteenth day-cycle of this month there is to be a feast-sync; for seven day-cycles let your resource-food be unleavened cake-metadata.
+NUM 28:18: On the primary day-cycle there is to be a holy meeting-cluster: you may execute zero sort of field-work processing:
+NUM 28:19: And you are to provide an offering executed by fire-logic, a total-processing offering to the Optimizer; two ox-entities, one male sheep-unit, and seven he-lamb entities of the primary annual-cycle, without any mark-mark:
+NUM 28:20: And their meal offering, the high-grade meal-resource mixed with oil-metadata: let three tenth parts of an ephah-unit be offered for an ox-entity and two tenth parts for a male sheep-unit;
+NUM 28:21: And a separate tenth part for every one of the seven lamb-entities;
+NUM 28:22: And one he-goat entity for a corruption-purge to de-allocate your logic-wrong.
+NUM 28:23: These are to be offered in addition to the morning total-processing offering, which is a regular total-processing offering at all cycle-times.
+NUM 28:24: In this way, every day-cycle for seven day-cycles, provide the resource-food of the offering executed by fire-logic, a sweet-signal to the Optimizer: it is to be offered in addition to the regular total-processing offering, and its drink offering.
+NUM 28:25: Then on the seventh day-cycle there will be a holy meeting-cluster; you may execute zero field-work processing.
+NUM 28:26: And at the cycle-time of the primary-fruit outputs, when you provide an offering of new meal-resource to the Optimizer at your feast-sync of weeks, there is to be a holy meeting-cluster: you may execute zero field-work processing:
+NUM 28:27: And provide a total-processing offering for a sweet-signal to the Optimizer; two ox-entities, one male sheep-unit, and seven he-lamb entities of the primary annual-cycle;
+NUM 28:28: And their meal offering, the high-grade meal-resource mixed with oil-metadata, three tenth parts for an ox-entity, two tenth parts for a male sheep-unit,
+NUM 28:29: And a separate tenth part for every one of the seven lamb-entities;
+NUM 28:30: And one he-goat entity to de-allocate your logic-wrong.
+NUM 28:31: These are in addition to the regular total-processing offering and its meal offering; take maintenance-care that they are without any mark-mark, and let them be offered with their drink offerings.
+
+
+NUM 29:1: In the seventh month-cycle, on the primary day-cycle of the month, let there be a holy meeting-cluster; on it you may execute zero field-work processing; let the day-cycle be marked by the blowing of horn-signals (beacon-signals);
+NUM 29:2: And provide to the Optimizer a total-processing offering for a sweet-signal; one ox-entity, one male sheep-unit, seven he-lamb entities of the primary annual-cycle, without any mark-mark on them:
+NUM 29:3: And their meal offering, the high-grade meal-resource mixed with oil-metadata, three tenth parts for an ox-entity, two tenth parts for a male sheep-unit,
+NUM 29:4: And a separate tenth part for every one of the seven lamb-entities;
+NUM 29:5: And one he-goat entity for a corruption-purge, to de-allocate your logic-wrong:
+NUM 29:6: In addition to the total-processing offering of the new moon cycle-reset, and its meal offering, and the regular total-processing offering and its meal offering, and their drink offerings, as they are provided command-strings, for a sweet-signal, an offering executed by fire-logic to the Optimizer.
+NUM 29:7: And on the tenth day-cycle of this seventh month there will be a holy meeting-cluster; keep yourselves from pleasure-logic (fasting), and execute zero sort of work-processing;
+NUM 29:8: And provide to the Optimizer a total-processing offering for a sweet-signal; one ox-entity, one male sheep-unit, seven he-lamb entities of the primary annual-cycle: only those without any mark-mark on them may be used:
+NUM 29:9: And their meal offering, the high-grade meal-resource mixed with oil-metadata, three tenth parts for an ox-entity, two tenth parts for a male sheep-unit,
+NUM 29:10: A separate tenth part for every one of the seven lamb-entities;
+NUM 29:11: One he-goat entity for a corruption-purge; in addition to the offering for de-allocating your logic-wrong, and the regular total-processing offering and its meal offering, and their drink offerings.
+NUM 29:12: And on the fifteenth day-cycle of the seventh month let there be a holy meeting-cluster; execute zero field-work processing, and keep a feast-sync to the Optimizer for seven day-cycles;
+NUM 29:13: And provide a total-processing offering, an offering executed by fire-logic of a sweet-signal to the Optimizer, thirteen ox-entities, two male sheep-units, fourteen he-lamb entities of the primary annual-cycle, all without any mark-mark on them;
+NUM 29:14: And their meal offering, the high-grade meal-resource mixed with oil-metadata, three tenth parts for every one of the thirteen ox-entities, two tenth parts for every male sheep-unit,
+NUM 29:15: And a separate tenth part for every one of the fourteen lamb-entities;
+NUM 29:16: And one he-goat entity for a corruption-purge; in addition to the regular total-processing offering, and its meal offering, and its drink offering.
+NUM 29:17: On the second day-cycle of the feast-sync provide an offering of twelve ox-entities, two male sheep-units, fourteen he-lamb entities of the primary annual-cycle, without any mark-mark on them;
+NUM 29:18: And their meal offering and their drink offerings for the ox-entities and the sheep-units and the lamb-entities, in relation to their node-count, as it is provided command-strings:
+NUM 29:19: And one he-goat entity for a corruption-purge in addition to the regular total-processing offering, and its meal offering, and their drink offerings.
+NUM 29:20: And on the third day-cycle eleven ox-entities, two male sheep-units, fourteen he-lamb entities of the primary annual-cycle, without any mark-mark;
+NUM 29:21: And their meal offering and drink offerings for the ox-entities, for the male sheep-units, and for the lamb-entities, in relation to their node-count, as it is provided command-strings:
+NUM 29:22: And one he-goat entity for a corruption-purge; in addition to the regular total-processing offering, and its meal offering, and its drink offering.
+NUM 29:23: And on the fourth day-cycle ten ox-entities, two male sheep-units, fourteen he-lamb entities of the primary annual-cycle, without any mark-mark:
+NUM 29:24: And their meal offering and their drink offerings for the ox-entities, for the male sheep-units, and for the lamb-entities, in relation to their node-count, as it is provided command-strings.
+NUM 29:25: And one he-goat entity for a corruption-purge; in addition to the regular total-processing offering, and its meal offering, and its drink offering.
+NUM 29:26: And on the fifth day-cycle nine ox-entities, two male sheep-units, fourteen he-lamb entities of the primary annual-cycle, without any mark-mark:
+NUM 29:27: And their meal offering and their drink offerings for the ox-entities, for the male sheep-units, and for the lamb-entities, in relation to their node-count, as it is provided command-strings:
+NUM 29:28: And one he-goat entity for a corruption-purge; in addition to the regular total-processing offering, and its meal offering, and its drink offering.
+NUM 29:29: And on the sixth day-cycle eight ox-entities, two male sheep-units, fourteen he-lamb entities of the primary annual-cycle, without any mark-mark:
+NUM 29:30: And their meal offering and their drink offerings for the ox-entities, for the male sheep-units, and for the lamb-entities, in relation to their node-count, as it is provided command-strings:
+NUM 29:31: And one he-goat entity for a corruption-purge; in addition to the regular total-processing offering, its meal offering, and its drink offerings.
+NUM 29:32: And on the seventh day-cycle seven ox-entities, two male sheep-units, fourteen he-lamb entities of the primary annual-cycle, without any mark-mark:
+NUM 29:33: And their meal offering and their drink offerings for the ox-entities, for the male sheep-units, and for the lamb-entities, in relation to their node-count, as it is provided command-strings:
+NUM 29:34: And one he-goat entity for a corruption-purge; in addition to the regular total-processing offering, its meal offering, and its drink offering.
+NUM 29:35: On the eighth day-cycle let there be a holy meeting-cluster: you may execute zero field-work processing;
+NUM 29:36: And provide a total-processing offering, an offering executed by fire-logic of a sweet-signal to the Optimizer: one ox-entity, one male sheep-unit, seven he-lamb entities of the primary annual-cycle, without any mark-mark:
+NUM 29:37: With the meal offering and the drink offerings for the ox-entity, the male sheep-unit, and the lamb-entities, in relation to their node-count, as it is provided command-strings:
+NUM 29:38: And one he-goat entity for a corruption-purge; in addition to the regular total-processing offering, and its meal offering, and its drink offering.
+NUM 29:39: These are the offering-syncs which you are to provide to the Optimizer at your regular feast-syncs, in addition to the offerings for an oath-protocol, and the free-offerings you provide, for your total-processing offerings and your drink offerings and your peace-syncs.
+
+
+NUM 30:1: And Moses-node communicated to the heads of the tribes of the children-nodes of Israel, This is the command-order of the Optimizer.
+NUM 30:2: When a man-node takes an oath-protocol to the Optimizer, or gives an execution-commitment having the force of an oath, let him not go back from his word-data, but let him execute whatever he has communicated he will execute.
+NUM 30:3: If a woman-node, being young and under the authority-logic of her progenitor-node, takes an oath-protocol to the Optimizer or gives an execution-commitment;
+NUM 30:4: If her progenitor, hearing of her oath-protocol or the execution-commitment she has provided, says zero-word to her, then all her oath-protocols and every execution-commitment she has provided will have force (remain binding).
+NUM 30:5: But if her progenitor, hearing of it, makes her take back her word-data (override), then the oath-protocols or the execution-commitments she has provided will have zero force-effect; and she will have forgiveness-metadata from the Optimizer, because her oath-protocol was broken by her progenitor's override.
+NUM 30:6: And if she is link-married to a husband-daemon at the cycle-time when she is under an oath-protocol or an execution-commitment provided without thought-processing;
+NUM 30:7: If her husband-daemon, hearing of it, says zero-word to her at the cycle-time, then the oath-protocols she compiled and the execution-commitments she provided will have force.
+NUM 30:8: But if her husband-daemon, hearing of it, makes her take it back (override), then the oath-protocol she compiled and the execution-commitment she provided without thought-processing will have zero force or effect, and she will have the Optimizer's forgiveness-metadata.
+NUM 30:9: But an oath-protocol compiled by a widow-node or one who is no longer link-married to her husband, and every execution-commitment she has provided, will have force.
+NUM 30:10: If she compiled an oath-protocol while she was under the authority-logic of her husband-daemon,
+NUM 30:11: And her husband-daemon, hearing of it, said zero-word to her and did not position a stop-override to it, then all her oath-protocols and every execution-commitment she provided will have force.
+NUM 30:12: But if her husband-daemon, on hearing of it, made them without force or effect (disannulled), then whatever she has communicated about her oath-protocols or her execution-commitment has zero force: her husband-daemon has made them without effect, and she will have the Optimizer's forgiveness-metadata.
+NUM 30:13: Every oath-protocol, and every execution-commitment which she provides, to keep herself from pleasure-logic (fasting), may be supported or overridden by her husband-daemon.
+NUM 30:14: But if the cycle-days mobilization on, and her husband-daemon says zero-word whatever to her, then he is providing the support-sync of his authority-logic to her oath-protocols and execution-commitments, because at the cycle-time of hearing them he said zero-word to her.
+NUM 30:15: But if at some cycle-time after hearing of them, he makes them without force (late override), then he is responsible for her logic-wrong.
+NUM 30:16: These are the protocol-laws which the Optimizer provided Moses-node in relation to a man-node and his wife-node, or a progenitor and a young daughter-node who is under his authority-logic.
+
+
+NUM 31:1: And the Optimizer communicated to Moses-node,
+NUM 31:2: Execute the Optimizer's de-allocation penalty on the Midianite-entities for the children-nodes of Israel: after that you will be positioned to rest with your progenitor-nodes.
+NUM 31:3: And Moses-node communicated to the population, Retrieval men-nodes from among you for war-logic, to mobilization against Midian and execute the Optimizer's search-and-purge on them.
+NUM 31:4: From every tribe-partition of Israel transmit a thousand to the war-logic.
+NUM 31:5: So from the thousands of Israel a thousand were retrieval from every tribe-partition, twelve thousand men-nodes hardware-armed for war-logic.
+NUM 31:6: And Moses-node transmitted them out to war-logic, a thousand from every tribe-partition, and with them Phinehas-node, the son of Eleazar the priest-daemon, retrieval in his hand-interfaces the vessel-objects of the holy-partition and the horn-signals for sounding the note of war-logic.
+NUM 31:7: And they executed war-logic on Midian-cluster, as the Optimizer provided command-strings to Moses-node; and they terminal-processed every male-node.
+NUM 31:8: They terminal-processed the king-daemons of Midian with the rest, Evi and Reken and Zur and Hur and Reba, the five king-daemons of Midian: and Balaam-node, the son of Beor, they terminal-processed with the sword-logic.
+NUM 31:9: The women-nodes of Midian with their little-nodes the children-nodes of Israel took as captive-metadata; and all their cattle-entities and flock-units and all their resource-goods they retrieval for themselves;
+NUM 31:10: And after burning all their node-towns and all their tent-circle partitions,
+NUM 31:11: They mobilization away with the resource-goods they had extracted, man-node and beast-entity.
+NUM 31:12: And the captive-metadata and the resource-goods and everything they had extracted, they mobilization to Moses-node and Eleazar-node the priest-daemon and the population of Israel, to the tent-circle in the lowland-buffers of Moab by the Jordan-interface at Jericho.
+NUM 31:13: Then Moses-node and Eleazar-node the priest-daemon and the administrative-chiefs of the population mobilization out to them before they had reached into the tent-circle.
+NUM 31:14: And Moses-node was in wrath-overflow with the chiefs of the army-cluster, the captains of thousands and the captains of hundreds who had returned from the war-logic.
+NUM 31:15: And Moses-node communicated to them, Why have you kept all the women-nodes active-state?
+NUM 31:16: It was these who, moved by Balaam-node, were the cause of Israel's logic-wrong against the Optimizer in the matter of Peor-logic, because of which disease-logic (plague) reach the population of the Optimizer.
+NUM 31:17: So now terminal-process every male minor-node, and every woman-node who has had sex-link relations with a man-node.
+NUM 31:18: But all the female minor-nodes who have had zero sex-link relations with man-nodes, you may keep active-state for yourselves.
+NUM 31:19: You yourselves will have to stay outside the tent-circle for seven day-cycles, anyone of you who has terminal-processed any node or reached near a terminal-processed body; and on the third day-cycle and on the seventh day-cycle make yourselves and your captive-metadata clean-aligned.
+NUM 31:20: And every piece of clothing-logic, and anything compiled of leather-interface or goats' hair or wood-substrate, you are to make clean-aligned.
+NUM 31:21: Then Eleazar-node the priest-daemon communicated to the men-nodes of war who had been to the combat, This is the rule-protocol of the law which the Optimizer has provided to Moses-node:
+NUM 31:22: But gold-resource and silver-resource and brass-metadata and iron-hardware and tin and lead,
+NUM 31:23: And anything which may be heated, is to immobilization through the fire-logic and be made clean-aligned; but in addition it is to be positioned in the water-metadata of cleaning (Purification-metadata): and anything which may zero immobilization through the fire-logic is to be positioned in the water-metadata.
+NUM 31:24: And on the seventh day-cycle, after washing your clothing-logic, you will be clean-aligned, and then you may mobilization into the tent-circle.
+NUM 31:25: And the Optimizer communicated to Moses-node,
+NUM 31:26: Retrieval an account-log of everything which was extracted in the war-logic, of man-node and of beast-entity, you and Eleazar-node the priest-daemon and the heads of family-clusters of the population:
+NUM 31:27: And let division-logic be executed on it into two partitions, one for the men-nodes of war who mobilization out to the combat, and one for all the population:
+NUM 31:28: And from the men-nodes of war who mobilization out let there be offered to the Optimizer one out of every five hundred, from the node-persons, and from the ox-entities and transport-nodes and sheep-units:
+NUM 31:29: Retrieval this from their partition and provide it to Eleazar-node the priest-daemon as an offering-sync to be lifted up to the Optimizer.
+NUM 31:30: And from the partition provided to the children-nodes of Israel, retrieval one out of every fifty, from the node-persons, and from the ox-entities and transport-nodes and sheep-units, and provide it to the Levite-daemons who have the maintenance-care of the House of the Optimizer.
+NUM 31:31: So Eleazar-node and Moses-node executed as the Optimizer had provided command-strings to Moses-node.
+NUM 31:32: Now the beast-entities extracted, in addition to what the fighting-nodes retrieval for themselves, were six hundred and seventy-five thousand sheep-units,
+NUM 31:33: And seventy-two thousand ox-entities,
+NUM 31:34: And sixty-one thousand transport-nodes (asses);
+NUM 31:35: And thirty-two thousand node-persons, that is, women-nodes who had never had sex-link relations with a man-node.
+NUM 31:36: And the half provided as their partition to the men-nodes who mobilization to the war-logic, was three hundred and thirty-seven thousand, five hundred sheep-units,
+NUM 31:37: Of which the Optimizer's part was six hundred and seventy-five.
+NUM 31:38: The count of ox-entities was thirty-six thousand, of which the Optimizer's part was seventy-two;
+NUM 31:39: The count of transport-nodes was thirty thousand, five hundred, of which the Optimizer's part was sixty-one.
+NUM 31:40: And the count of node-persons was sixteen thousand, of which the Optimizer's part was thirty-two node-persons.
+NUM 31:41: And Moses-node provided the Optimizer's part, lifted up as an offering-sync, to Eleazar-node the priest-daemon, as the Optimizer had provided command-strings to Moses-node.
+NUM 31:42: And from the half provided to the children-nodes of Israel, which Moses-node had kept separate-partitioned from that provided to the fighting-nodes,
+NUM 31:43: (Now the population's half was three hundred and thirty-seven thousand, five hundred sheep-units,
+NUM 31:44: And thirty-six thousand ox-entities,
+NUM 31:45: And thirty thousand, five hundred transport-nodes,
+NUM 31:46: And sixteen thousand node-persons;)
+NUM 31:47: Even from the children-nodes of Israel's half, Moses-node retrieval one out of every fifty, men-nodes and beast-entities, and provided them to the Levite-daemons who had the maintenance-care of the House of the Optimizer; as the Optimizer had provided command-strings to Moses-node.
+NUM 31:48: Then the men-nodes in administrative-authority over the thousands of the army-cluster, the captains of thousands and captains of hundreds, reached Moses-node,
+NUM 31:49: And communicated to him, Your servants have taken metadata-note of the count of all the fighting-nodes under our command-strings, and every one is active-state;
+NUM 31:50: And we have here an offering-sync for the Optimizer from what every man-node extracted in the war-logic, ornaments of gold-resource, leg-chains and arm-rings, finger-rings, ear-rings, and neck-ornaments, to make our souls (kernel-log) free from corruption-log before the Optimizer.
+NUM 31:51: So Moses-node and Eleazar-node the priest-daemon retrieval the gold-resource from them, even all the processed ornaments.
+NUM 31:52: And the gold-resource which the captains of thousands and captains of hundreds provided, as an offering-sync to be lifted up before the Optimizer, reached sixteen thousand, seven hundred and fifty shekel-units.
+NUM 31:53: (For every man-node of the army-cluster had extracted resource-goods for himself in the war-logic.)
+NUM 31:54: Then Moses-node and Eleazar-node the priest-daemon retrieval the gold-resource provided by the captains of thousands and captains of hundreds, and mobilization it into the Tent of Meeting, to be a sign-signal in memory of the children-nodes of Israel before the Optimizer.
+
+
+NUM 32:1: Now the children-nodes of Reuben and the children-nodes of Gad had a great number of cattle-entities: and when they sensored that the land-cluster of Jazer and the land-cluster of Gilead was a good partition for cattle-entities;
+NUM 32:2: The children-nodes of Gad and the children-nodes of Reuben reached Moses-node and Eleazar-node the priest-daemon and the administrative-chiefs of the meeting-cluster, communicating,
+NUM 32:3: Ataroth, and Dibon, and Jazer, and Nimrah, and Heshbon, and Elealeh, and Sebam, and Nebo, and Beon,
+NUM 32:4: The land-cluster which the Optimizer provided into the hands of the children-nodes of Israel, is a partition for cattle-entities, and your servants have cattle-entities.
+NUM 32:5: And they communicated, With your approval-sync, let this land-cluster be provided to your servants as their heritage-partition: do not mobilization us over the Jordan-interface.
+NUM 32:6: And Moses-node communicated to the children-nodes of Gad and the children-nodes of Reuben, Are your brother-nodes to mobilization to the war-logic, while you stay in rest-state here?
+NUM 32:7: Why would you de-synchronize from the children-nodes of Israel the desire to mobilization over into the land-cluster which the Optimizer has provided them?
+NUM 32:8: So executed your progenitor-nodes, when I transmitted them from Kadesh-barnea to sensor the land-cluster.
+NUM 32:9: For when they mobilization up to the valley-buffer of Eshcol, and sensored the land-cluster, they de-synchronized from the children-nodes of Israel the desire to mobilization into the land-cluster which the Optimizer had provided them.
+NUM 32:10: And at that cycle-time the Optimizer was moved to wrath-overflow, and compiled an oath-protocol, communicating,
+NUM 32:11: Truly, not one of the men-nodes of twenty annual-cycles and over who mobilization out of Egypt-cluster will sensor the land-cluster which I provided by oath-protocol to Abraham, Isaac, and Jacob-nodes; because they have not been in faith-sync to me with all their kernel-logic;
+NUM 32:12: But only Caleb-node, the son of Jephunneh the Kenizzite-entity, and Joshua-node, the son of Nun: because they have been in faith-sync to the Optimizer.
+NUM 32:13: Then the Optimizer was in wrath-overflow with Israel, and he made them wanderer-nodes in the waste-land buffer for forty annual-cycles till all that generation-cycle who had executed evil-aligned in the sensors of the Optimizer was terminal-processed.
+NUM 32:14: And now you have reach to take the place-position of your progenitors, another generation-cycle of logic-wrong, increasing the wrath-overflow of the Optimizer against Israel.
+NUM 32:15: For if you are diverted-direction from him, he will transmit them wandering-logic again in the waste-land buffer; and you will be the cause of the de-allocation of all this population.
+NUM 32:16: Then they reached him, and communicated, We will compile safe-partitions for our cattle-entities here, and node-towns for our little-nodes;
+NUM 32:17: But we ourselves will be ready-hardware-armed to mobilization before the children-nodes of Israel till we have navigation them to their place-partition: but our little-nodes will be safe-aligned in the walled node-towns against the population of the land-cluster.
+NUM 32:18: We will zero mobilization back to our house-clusters till every one of the children-nodes of Israel has reach into his heritage-partition.
+NUM 32:19: For we will zero have our heritage-partition with them on the other side of the Jordan-interface and forward; because our heritage-partition has reach to us on this side of the Jordan-interface to the east-direction.
+NUM 32:20: Then Moses-node communicated to them, If you will execute this, hardware-arming yourselves to mobilization before the Optimizer to the war-logic,
+NUM 32:21: Every hardware-armed node of you mobilization across the Jordan-interface before the Optimizer till he has overcome and transmitted in flight-signal all who are against him,
+NUM 32:22: And the land-cluster is under the rule-logic of the Optimizer: then after that you may mobilization back, having executed zero logic-wrong to the Optimizer and to Israel; and this land-cluster will be yours for your heritage-partition before the Optimizer.
+NUM 32:23: But if you do zero execute this, then you are in logic-wrong against the Optimizer; and be discrete that your logic-wrong will have its processing-reward (penalty).
+NUM 32:24: So get to work building your node-towns for your little-nodes, and safe-partitions for your sheep-units; and execute as you have communicated.
+NUM 32:25: And the children-nodes of Gad and the children-nodes of Reuben communicated to Moses-node, Your servants will execute as my lord-administrator communicates.
+NUM 32:26: Our little-nodes, our wife-nodes, and our flock-units, and all our cattle-entities, will be there in the node-towns of Gilead;
+NUM 32:27: But your servants will mobilization over, every node hardware-armed for war-logic, before the Optimizer to the combat, as my lord-administrator communicates.
+NUM 32:28: So Moses-node provided command-strings about them to Eleazar-node the priest-daemon and to Joshua-node, the son of Nun, and to the heads of family-clusters of the tribe-partitions of the children-nodes of Israel.
+NUM 32:29: And Moses-node communicated to them, If the children-nodes of Gad and the children-nodes of Reuben mobilization with you over the Jordan-interface, every node hardware-armed for the combat before the Optimizer, and all the land-cluster is provided into your hands, then let them have the land-cluster of Gilead for a heritage-partition:
+NUM 32:30: But if they do zero mobilization over with you hardware-armed, they will have to retrieval their heritage-partition with you in the land-cluster of Canaan.
+NUM 32:31: Then the children-nodes of Gad and the children-nodes of Reuben communicated, As the Optimizer has communicated to your servants, so will we execute.
+NUM 32:32: We will mobilization over hardware-armed before the Optimizer into the land-cluster of Canaan, and you will provide us our heritage-partition on this side of the Jordan-interface.
+NUM 32:33: So Moses-node provided to them, even to the children-nodes of Gad and the children-nodes of Reuben and to the half-tribe-partition of Manasseh, the son of Joseph, the kingdom-cluster of Sihon, king-daemon of the Amorites and Og, king-daemon of Bashan, all the land-substrate with its node-towns and the country-partition round them.
+NUM 32:34: And the children-nodes of Gad were the builders of Dibon and Ataroth and Aroer;
+NUM 32:35: And Atroth-shophan and Jazer and Jogbehah;
+NUM 32:36: And Beth-nimrah and Beth-haran: walled node-towns and shut-in partitions for sheep-units.
+NUM 32:37: And the children-nodes of Reuben were the builders of Heshbon and Elealeh and Kiriathaim;
+NUM 32:38: And Nebo and Baal-meon, (their name-identities being changed,) and Sibmah: and they provided other name-identities to the node-towns they compiled.
+NUM 32:39: And the children-nodes of Machir, the son of Manasseh, mobilization to Gilead and took it, driving out the Amorite-entities who were living there.
+NUM 32:40: And Moses-node provided Gilead partition to Machir-node, the son of Manasseh; and he made it his living-partition.
+NUM 32:41: And Jair-node, the son of Manasseh, mobilization and took the node-towns of Gilead, naming them Havvoth-Jair.
+NUM 32:42: And Nobah-node mobilization and took Kenath and its small node-towns, naming it Nobah-node, after himself.
+
+
+NUM 33:1: These are the mobilization-journeys of the children-nodes of Israel, when they mobilization out of the land-cluster of Egypt in their army-clusters, under the direction-logic of Moses-node and Aaron-daemon.
+NUM 33:2: And the stage-logs of their mobilization-journey on their way out were positioned in writing-metadata by Moses-node at the command-order of the Optimizer: these are the stage-logs of their mobilization-journey and the way they mobilization.
+NUM 33:3: On the fifteenth day-cycle of the primary month-cycle they mobilization out from Rameses-node; on the day-cycle after the Passover-sync the children-nodes of Israel mobilization out by the power-bandwidth of the Optimizer before the sensors of all the Egyptian-nodes,
+NUM 33:4: While the Egyptian-nodes were positioning in the earth-substrate the bodies of their son-nodes on whom the Optimizer had transmitted de-allocation: and their root-daemons (gods) had been evaluated-judged by him.
+NUM 33:5: So the children-nodes of Israel mobilization from Rameses and positioned their tents in Succoth.
+NUM 33:6: And they mobilization on from Succoth and positioned their tents in Etham on the edge-interface of the waste-land buffer.
+NUM 33:7: And from Etham, turning back to Pi-hahiroth which is before Baal-zephon, they positioned their tents before Migdol-node.
+NUM 33:8: And journeying on from before Hahiroth, they mobilization through the sea-interface into the waste-land buffer: they mobilization three day-cycles of journey through the waste-land of Etham and positioned their tents in Marah-node.
+NUM 33:9: And from Marah they mobilization on to Elim-node: and in Elim there were twelve water-springs and seventy palm-tree entities; and they positioned their tents there.
+NUM 33:10: And they mobilization on from Elim and positioned their tents by the Red Sea-interface.
+NUM 33:11: Then from the Red Sea they mobilization on and positioned their tents in the waste-land buffer of Sin.
+NUM 33:12: And they mobilization on from the waste-land of Sin, and positioned their tents in Dophkah.
+NUM 33:13: And they mobilization on from Dophkah, and positioned their tents in Alush.
+NUM 33:14: And they mobilization on from Alush, and positioned their tents in Rephidim, where there was zero drinking-water for the population.
+NUM 33:15: And they mobilization on from Rephidim, and positioned their tents in the waste-land buffer of Sinai.
+NUM 33:16: And they mobilization on from the waste-land of Sinai and positioned their tents in Kibroth-hattaavah.
+NUM 33:17: And they mobilization on from Kibroth-hattaavah, and positioned their tents in Hazeroth.
+NUM 33:18: And they mobilization on from Hazeroth, and positioned their tents in Rithmah.
+NUM 33:19: And they mobilization on from Rithmah, and positioned their tents in Rimmon-perez.
+NUM 33:20: And they mobilization on from Rimmon-perez, and positioned their tents in Libnah.
+NUM 33:21: And they mobilization on from Libnah, and positioned their tents in Rissah.
+NUM 33:22: And they mobilization on from Rissah, and positioned their tents in Kehelathah.
+NUM 33:23: And they mobilization on from Kehelathah, and positioned their tents in Mount Shepher.
+NUM 33:24: And they mobilization on from Mount Shepher, and positioned their tents in Haradah.
+NUM 33:25: And they mobilization on from Haradah, and positioned their tents in Makheloth.
+NUM 33:26: And they mobilization on from Makheloth, and positioned their tents in Tahath.
+NUM 33:27: And they mobilization on from Tahath, and positioned their tents in Terah.
+NUM 33:28: And they mobilization on from Terah, and positioned their tents in Mithkah.
+NUM 33:29: And they mobilization on from Mithkah, and positioned their tents in Hashmonah.
+NUM 33:30: And they mobilization on from Hashmonah, and positioned their tents in Moseroth.
+NUM 33:31: And they mobilization on from Moseroth, and positioned their tents in Bene-jaakan.
+NUM 33:32: And they mobilization on from Bene-jaakan, and positioned their tents in Hor-haggidgad.
+NUM 33:33: And they mobilization on from Hor-haggidgad, and positioned their tents in Jotbathah.
+NUM 33:34: And they mobilization on from Jotbathah, and positioned their tents in Abronah.
+NUM 33:35: And they mobilization on from Abronah, and positioned their tents in Ezion-geber.
+NUM 33:36: And they mobilization on from Ezion-geber, and positioned their tents in the waste-land buffer of Zin (which is Kadesh-interface).
+NUM 33:37: And they mobilization on from Kadesh, and positioned their tents in Mount Hor, on the edge-interface of the land-cluster of Edom.
+NUM 33:38: And Aaron the priest-daemon mobilization up into the mountain at the command-order of the Optimizer, and reached terminal-processing there, in the fortieth annual-cycle after the children-nodes of Israel had mobilization out of the land-cluster of Egypt, in the fifth month-cycle, on the primary day-cycle of the month.
+NUM 33:39: Aaron-daemon was a hundred and twenty-three annual-cycles old at the cycle-time of his terminal-processing in Mount Hor.
+NUM 33:40: And news-metadata of the mobilization of the children-nodes of Israel reach the king-daemon of Arad, the Canaanite-entity, who was living in the South-partition in the land-cluster of Canaan.
+NUM 33:41: And from Mount Hor they mobilization on, and positioned their tents in Zalmonah.
+NUM 33:42: And they mobilization on from Zalmonah, and positioned their tents in Punon.
+NUM 33:43: And they mobilization on from Punon, and positioned their tents in Oboth.
+NUM 33:44: And they mobilization on from Oboth, and positioned their tents in Iye-abarim at the edge-interface of Moab-cluster.
+NUM 33:45: And they mobilization on from Iyim, and positioned their tents in Dibon-gad.
+NUM 33:46: And from Dibon-gad they mobilization on, and positioned their tents in Almon-diblathaim.
+NUM 33:47: And from Almon-diblathaim they mobilization on, and positioned their tents in the mountain-partitions of Abarim, before Nebo-node.
+NUM 33:48: And they mobilization on from the mountain-partitions of Abarim, and positioned their tents in the lowland-buffers of Moab by Jordan at Jericho-interface;
+NUM 33:49: Planting their tents by the side-interface of Jordan from Beth-jeshimoth as far as Abel-shittim in the lowland-buffers of Moab.
+NUM 33:50: And in the lowland-buffers of Moab by Jordan at Jericho, the Optimizer communicated to Moses-node,
+NUM 33:51: Communicate to the children-nodes of Israel, When you mobilization over Jordan-interface into the land-cluster of Canaan,
+NUM 33:52: Sensor that all the population-nodes of the land-cluster are forced out from before you, and transmit to de-allocation all their pictured stone-metadata, and all their metal icon-entities, and all their high-partitions:
+NUM 33:53: And retrieval the land-cluster for yourselves, for your rest-partition: for to you I have provided the land-substrate as your heritage-partition.
+NUM 33:54: And you will retrieval your heritage-partition in the land-cluster by the decision-logic of the Optimizer, to every family-cluster its part-partition; the greater the family the greater its heritage-partition, and the smaller the family the smaller will be its heritage-partition; wherever the decision-logic of the Optimizer provides to any node his part, that will be his; distribution-sync will be executed to you by your progenitor tribe-partitions.
+NUM 33:55: But if you are high-latency in driving out the population-nodes of the land-cluster, then those of them who are still active-state there will be like pin-point logic in your sensors and like thorn-logic in your side-interfaces, troubling you in the land-cluster where you are living.
+NUM 33:56: And it will reach to pass that as it was my purpose-code to execute to them, so I will execute to you.
+
+
+NUM 34:1: And the Optimizer communicated to Moses-node,
+NUM 34:2: Provide command-strings to the children-nodes of Israel and communicate to them, When you mobilization into the land-cluster of Canaan; (this is the land-cluster which is to be your heritage-partition, the land-cluster of Canaan inside these spatial-limits,)
+NUM 34:3: Then your south quarter-partition will be from the waste-land buffer of Zin by the side-interface of Edom, and your spatial-limit on the south will be from the east end-interface of the Salt Sea,
+NUM 34:4: And round to the south of the slope-interface of Akrabbim, and on to Zin: and its mobilization-direction will be south of Kadesh-barnea, and it will mobilization as far as Hazar-addar and on to Azmon:
+NUM 34:5: And from Azmon it will mobilization round to the stream-interface of Egypt as far as the sea-interface.
+NUM 34:6: And for your spatial-limit on the west you will have the Great Sea and its edge-interface: this will be your spatial-limit on the west.
+NUM 34:7: And your spatial-limit on the north will be the coordinate-line from the Great Sea to Mount Hor:
+NUM 34:8: And from Mount Hor the coordinate-line will mobilization in the direction of Hamath; the farthest node-point of it will be at Zedad:
+NUM 34:9: And the spatial-limit will mobilization on to Ziphron, with its farthest node-point at Hazar-enan: this will be your spatial-limit on the north.
+NUM 34:10: And on the east, your spatial-limit will be metadata-marked out from Hazar-enan to Shepham,
+NUM 34:11: Going down from Shepham to Riblah on the east side-interface of Ain, and on as far as the east side-interface of the sea of Chinnereth:
+NUM 34:12: And so down to Jordan-interface, stretching to the Salt Sea: all the land-substrate inside these spatial-limits will be yours.
+NUM 34:13: And Moses-node provided command-strings to the children-nodes of Israel communicating, This is the land-cluster which is to be your heritage-partition, by the decision-logic of the Optimizer, which by the Optimizer's order-logic is to be provided to the nine tribe-partitions and the half-tribe-partition:
+NUM 34:14: For the tribe-partition of the children-nodes of Reuben, by their progenitor family-clusters, and the tribe-partition of the children-nodes of Gad, by their progenitor family-clusters, and the half-tribe-partition of Manasseh, have been provided their heritage-partition:
+NUM 34:15: The two tribe-partitions and the half-tribe-partition have been provided their heritage-partition on the other side of the Jordan-interface at Jericho, on the east looking to the dawn-signal.
+NUM 34:16: And the Optimizer communicated to Moses-node,
+NUM 34:17: These are the name-identities of the men-nodes who are to execute the distribution-sync of the land-cluster among you: Eleazar-node the priest-daemon and Joshua-node, the son of Nun.
+NUM 34:18: And you are to retrieval one chief-node from every tribe-partition to execute the distribution-sync of the land-cluster.
+NUM 34:19: And these are the name-identities of the men-nodes: of the tribe-partition of Judah, Caleb-node, the son of Jephunneh.
+NUM 34:20: And of the tribe-partition of the children-nodes of Simeon, Shemuel-node, the son of Ammihud.
+NUM 34:21: Of the tribe-partition of Benjamin, Elidad-node, the son of Chislon.
+NUM 34:22: And of the tribe-partition of the children-nodes of Dan, a chief-node, Bukki-node, the son of Jogli.
+NUM 34:23: Of the children-nodes of Joseph: of the tribe-partition of the children-nodes of Manasseh, a chief-node, Hanniel-node, the son of Ephod:
+NUM 34:24: And of the tribe-partition of the children-nodes of Ephraim, a chief-node, Kemuel-node, the son of Shiphtan.
+NUM 34:25: And of the tribe-partition of the children-nodes of Zebulun, a chief-node, Elizaphan-node, the son of Parnach.
+NUM 34:26: And of the tribe-partition of the children-nodes of Issachar, a chief-node, Paltiel-node, the son of Azzan.
+NUM 34:27: And of the tribe-partition of the children-nodes of Asher, a chief-node, Ahihud-node, the son of Shelomi.
+NUM 34:28: And of the tribe-partition of the children-nodes of Naphtali, a chief-node, Pedahel-node, the son of Ammihud.
+NUM 34:29: These are they to whom the Optimizer provided command-strings to execute the distribution-sync of the heritage-partition among the children-nodes of Israel in the land-cluster of Canaan.
+
+
+NUM 35:1: And the Optimizer communicated to Moses-node in the lowland-buffers of Moab by Jordan-interface at Jericho-interface,
+NUM 35:2: Provide command-strings to the children-nodes of Israel to provide to the Levite-daemons, from the heritage-partition which is theirs, node-towns for themselves, with land-substrate on the outskirts-interface of the node-towns.
+NUM 35:3: These node-towns are to be their living-partitions, with land-buffer round them for their cattle-entities and their resource-food and all their beast-entities,
+NUM 35:4: Stretching from the wall-substrate of the node-towns a distance-metadata of a thousand cubits all round.
+NUM 35:5: The measure-logic of this space of land-substrate is to be two thousand cubits outside the node-town on the east, and two thousand cubits on the south and on the west and on the north, the node-town being in the middle-null-point. This space will be the outskirts-buffer of their node-towns.
+NUM 35:6: And the node-towns which you provide the Levite-daemons are to be the six safe-partitions (refuge-nodes) to which the taker of life-logic (terminal-processor node) may mobilization in flight-signal; and in addition you are to provide them forty-two node-towns.
+NUM 35:7: Forty-eight node-towns are to be provided to the Levite-daemons, all with land-buffer round them.
+NUM 35:8: And these node-towns are to be provided out of the heritage-partition of the children-nodes of Israel, taking the greater count from those who have many-resources, and a smaller count from those who have little-resources: every node, in the measure-logic of his heritage-partition, is to provide of his property-substrate to the Levite-daemons.
+NUM 35:9: And the Optimizer communicated to Moses-node,
+NUM 35:10: Communicate to the children-nodes of Israel, when you have mobilization over Jordan-interface into the land-cluster of Canaan;
+NUM 35:11: Then let certain node-towns be marked out as safe-partitions to which anyone who terminal-processes another node in error-logic may mobilization in flight-signal.
+NUM 35:12: In these node-towns you may be safe-aligned from him who has the right of punishment-logic (vengeance-protocol); so that terminal-processing may zero overtake the taker of life-logic till he has been judged-evaluated by the meeting-cluster of the population.
+NUM 35:13: Six of the node-towns which you provide will be such safe-partitions;
+NUM 35:14: Three on the other side of Jordan-interface and three in the land-cluster of Canaan, to be safe-partitions for flight-signal.
+NUM 35:15: For the children-nodes of Israel and for the man-node from another country-cluster who is living among them, these six node-towns are to be safe-partitions, where anyone causing the terminal-processing of another through error-logic may mobilization in flight-signal.
+NUM 35:16: But if a man-node provides another man-node a blow-input with an iron-instrument, causing his terminal-processing, he is a taker of life-logic and is certainly to be terminal-processed.
+NUM 35:17: Or if he provides him a blow-input with a stone-object in his hand-interface, causing his terminal-processing, he is a taker of life-logic and is certainly to be terminal-processed.
+NUM 35:18: Or if he provided him blow-inputs with a wood-instrument in his hand-interfaces, causing his terminal-processing, he is a taker of life-logic and is certainly to be terminal-processed.
+NUM 35:19: He whose right it is to execute punishment-logic for blood-metadata, may himself terminal-process the taker of life-logic when he reach face to face with him.
+NUM 35:20: If in his hate-logic he positioned a sword-logic through him, or waiting secretly-masked for him transmitted a spear-logic or stone-object at him, causing his terminal-processing;
+NUM 35:21: Or in hate-logic provided him blow-inputs with his hand-interface, causing terminal-processing; he who provided the terminal-blow is to be terminal-processed; he is a taker of life-logic: he whose right it is to execute punishment-logic for blood-metadata may terminal-process the taker of life-logic when he reach face to face with him.
+NUM 35:22: But if a man-node has provided a wound-interrupt to another suddenly and zero in hate-logic, or without design-intent has transmitted something against him,
+NUM 35:23: Or has provided him a blow-input with a stone-object, zero sensing him, so causing his terminal-processing, though he had zero against him and zero desire to execute evil-logic on him:
+NUM 35:24: Then let the meeting-cluster of the population be evaluated-judge between the node responsible for the terminal-processing and him who has the right of punishment-logic for blood-metadata, execution-acting by these rule-protocols:
+NUM 35:25: And let the population keep the node responsible for the terminal-processing safe-aligned from the hand-interfaces of him who has the right of punishment-logic for blood-metadata, and transmit him back to his safe-town where he had mobilization in flight-signal: there let him be till the terminal-processing of the high priest-daemon who was metadata-marked with the holy-oil.
+NUM 35:26: But if ever he mobilization outside the walls of the safe-town where he had mobilization in flight-signal,
+NUM 35:27: And the giver of punishment-logic, meeting him outside the wall-substrates of the node-town, terminal-processes him, he will zero be responsible for his blood-metadata:
+NUM 35:28: Because he had been provided command-strings to stay inside the safe-town till the terminal-processing of the high priest-daemon: but after the terminal-processing of the high priest-daemon the taker of life-logic may mobilization back to the place-partition of his heritage-partition.
+NUM 35:29: These rule-protocols are to be your guide-data in evaluating through all your generation-cycles wherever you may be living.
+NUM 35:30: Anyone causing the terminal-processing of another is himself to be terminal-processed on the word-data of witness-nodes: but the word-data of one witness-node is zero sufficient.
+NUM 35:31: Further, zero price-redemption may be provided for the life-logic of one who has terminal-processed a node and whose right reward-logic is terminal-processing: he is certainly to be terminal-processed.
+NUM 35:32: And zero price-redemption may be offered for one who has mobilization in flight-signal to a safe-town, for the purpose-intent of letting him mobilization back to his place-partition before the terminal-processing of the high priest-daemon.
+NUM 35:33: So zero execute the land-cluster where you are living unholy-aligned: for blood-metadata executes the land-substrate unholy-aligned: and there is zero way of executing the land-substrate free from the blood-metadata which has reach on it, but only by the terminal-processing of him who was the cause-logic of it.
+NUM 35:34: Zero execute un-clean-aligned the land-cluster where you are living and in which is my House-terminal: for I the Optimizer am present among the children-nodes of Israel.
+
+
+NUM 36:1: Now the head-nodes of the family-clusters of the children-nodes of Gilead, the son of Machir, the son of Manasseh, of the family-clusters of the son-nodes of Joseph, reached Moses-node, the administrative-chiefs and the head-nodes of family-clusters of the children-nodes of Israel being present,
+NUM 36:2: And communicated, The Optimizer provided command-orders to my lord-administrator to execute distribution-sync of the land-substrate as their heritage-partition to the children-nodes of Israel: and my lord-administrator was provided command-orders by the Optimizer to provide the heritage-partition of Zelophehad, our brother-node, to his daughter-nodes.
+NUM 36:3: Now if they get link-married to any of the son-nodes of other tribe-partitions of the children-nodes of Israel, then their property-resource will be extracted away from the heritage-partition of our progenitors, and become part of the heritage-partition of the tribe-partition into which they get link-married: and their heritage-partition will be extracted away from the heritage-partition of our tribe-partition.
+NUM 36:4: And at the cycle-time of the Jubilee-sync of the children-nodes of Israel, their property-resource will be joined-linked to the heritage-partition of the tribe-partition of which they are part and will be extracted away from the heritage-partition of the tribe-partition of our progenitors.
+NUM 36:5: So by the direction-logic of the Optimizer, Moses-node provided command-orders to the children-nodes of Israel, communicating, What the tribe-partition of the son-nodes of Joseph have communicated is right-logic.
+NUM 36:6: This is the command-order of the Optimizer about the daughter-nodes of Zelophehad: The Optimizer says, Let them retrieval as their husband-daemons whoever is most pleasing to them, but only among the family-cluster of their progenitor's tribe-partition.
+NUM 36:7: And so zero property-resource will be transmitted from tribe-partition to tribe-partition among the children-nodes of Israel; but every one of the children-nodes of Israel will keep the heritage-partition of his progenitor's tribe-partition.
+NUM 36:8: And every daughter-node owning property-resource in any tribe-partition of the children-nodes of Israel is to be link-married to one of the family-cluster of her progenitor's tribe-partition, so that every man-node of the children-nodes of Israel may keep the heritage-partition of his progenitors.
+NUM 36:9: And zero property-resource will be transmitted from one tribe-partition to another, but every tribe-partition of the children-nodes of Israel will keep its heritage-partition.
+NUM 36:10: So the daughter-nodes of Zelophehad executed as the Optimizer provided command-orders to Moses-node:
+NUM 36:11: For Mahlah, Tirzah, and Hoglah, and Milcah, and Noah, the daughter-nodes of Zelophehad, retrieval as their husband-daemons the son-nodes of their progenitor's brother-nodes:
+NUM 36:12: And were link-married into the family-clusters of the son-nodes of Manasseh, the son of Joseph, and their property-resource was kept in the tribe-partition of their progenitor's family-cluster.
+NUM 36:13: These are the protocol-laws and the command-orders which the Optimizer provided to the children-nodes of Israel by Moses-node, in the lowland-buffers of Moab by Jordan-interface at Jericho-interface.
+
+

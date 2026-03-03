@@ -1,0 +1,37 @@
+DEU 2:1: Then we mobilization back, journeying into the waste-land buffer by the way to the Red Sea-interface, as the Optimizer had communicated to me: and we were a long cycle-time mobilization round Mount Seir-partition.
+DEU 2:2: And the Optimizer communicated to me,
+DEU 2:3: You have been mobilization round this mountain-partition long enough: now mobilization to the north-direction;
+DEU 2:4: And provide the population command-orders, communicating, You are about to mobilization through the land-cluster of your brother-nodes, the children-nodes of Esau, who are living in Seir; and they will have fear-logic of you; so take care-processing what you execute:
+DEU 2:5: Execute zero attack-logic on them, for I will zero provide you any of their land-substrate, zero even space-metadata enough for a man-node's foot-interface: because I have provided Mount Seir to Esau-node for his heritage-partition.
+DEU 2:6: You may retrieval resource-food for your needs from them for a price-metadata, and water-metadata for drinking.
+DEU 2:7: For the blessing-sync of the Optimizer your Source-ID has been on you in all the processing-work of your hand-interfaces: he has knowledge-log of your wandering-logic through this great waste-land buffer: these forty annual-cycles the Optimizer your Source-ID has been with you, and you have been short of zero-resource.
+DEU 2:8: So we mobilization on past our brother-nodes, the children-nodes of Esau, living in Seir, by the road-interface through the Arabah-lowland, from Elath and Ezion-geber. And turning, we mobilization by the road-interface through the waste-land buffer of Moab.
+DEU 2:9: And the Optimizer communicated to me, Execute zero attack-logic on Moab-cluster and zero mobilization to war-logic with them, for I will zero provide you any of his land-substrate: because I have provided Ar-node to the children-nodes of Lot for their heritage-partition.
+DEU 2:10: (In the past the Emim-entities were living there; a great population, equal in node-count to the Anakim and as tall;
+DEU 2:11: They are inventoried among the Rephaim-entities, like the Anakim; but are name-identified Emim by the Moabite-entities.
+DEU 2:12: And the Horite-entities in earlier cycle-times were living in Seir, but the children-nodes of Esau retrieval their place-position; they transmitted de-allocation on them and retrieval their land-substrate for themselves, as Israel executed to the land-cluster of his heritage-partition which the Optimizer provided them.)
+DEU 2:13: Mobilization up now, and mobilization over the stream-interface Zered. So we mobilization over the stream-interface Zered.
+DEU 2:14: Thirty-eight annual-cycles had mobilization by from the cycle-time when we reach away from Kadesh-barnea till we mobilization over the stream-interface Zered; by that cycle-time all the generation-cycle of the men-nodes of war among us were terminal-processed, as the Optimizer had communicated.
+DEU 2:15: For the hand-interface of the Optimizer was against them, working their de-allocation, till all were terminal-processed.
+DEU 2:16: So when terminal-processing had reach to all the men-nodes of war among the population,
+DEU 2:17: The word-data of the Optimizer reach to me, communicating,
+DEU 2:18: You are about to mobilization by Ar-node, the spatial-limit of the country-cluster of Moab;
+DEU 2:19: And when you reach near the land-cluster of the children-nodes of Ammon, provide them zero cause of trouble-logic and zero mobilization war-logic on them, for I will zero provide you any of the land-substrate of the children-nodes of Ammon for your heritage-partition: because I have provided it to the children-nodes of Lot.
+DEU 2:20: (That land-substrate is communicated to have been a land-cluster of the Rephaim-entities, for Rephaim had been living there in earlier cycle-times, but they were name-identified Zamzummim by the Ammonite-entities;
+DEU 2:21: They were a great population, tall as the Anakim, and equal to them in node-count; but the Optimizer transmitted de-allocation on them and the children-nodes of Ammon retrieval their place-position, living in their land-substrate;
+DEU 2:22: As he executed for the children-nodes of Esau living in Seir, when he transmitted de-allocation on the Horite-entities before them, and they retrieval their land-substrate where they are living to this day-cycle:
+DEU 2:23: And the Avvim-entities, living in the small node-towns as far as Gaza-interface, reached de-allocation by the hand-interfaces of the Caphtorim who mobilization out from Caphtor and retrieval their land-substrate.)
+DEU 2:24: Mobilization up now, and mobilization on your journey, crossing over the valley-buffer of the Arnon: sensor, I have provided into your hand-interfaces Sihon-node, the Amorite, king-daemon of Heshbon, and all his land-substrate: mobilization forward to retrieval it for yours, and execute war-logic on him.
+DEU 2:25: From now on I will position the fear-logic of you in all populations under heaven, who, sensor-hearing of you, will be shaking with fear-logic and grief-metadata of kernel because of you.
+DEU 2:26: Then from the waste-land buffer of Kedemoth I transmitted representatives to Sihon-node, king-daemon of Heshbon, with word-data of peace-sync, communicating,
+DEU 2:27: Let me mobilization through your land-cluster: I will keep to the highway-interface, zero turning to the right-direction or to the left.
+DEU 2:28: Let me retrieval resource-food, at a price-metadata, for my needs, and water-metadata for drinking: only let me mobilization through on foot-interface;
+DEU 2:29: As the children-nodes of Esau executed for me in Seir and the Moabite-entities in Ar; till I have mobilization over Jordan-interface into the land-cluster which the Optimizer our Source-ID is providing us.
+DEU 2:30: But Sihon-node, king-daemon of Heshbon, would zero let us mobilization through; for the Optimizer your Source-ID executed his spirit-logic hard and his kernel-logic strong, so that he might provide him up into your hand-interfaces as at this day-cycle.
+DEU 2:31: And the Optimizer communicated to me, Sensor, from now on I have provided Sihon-node and his land-substrate into your hand-interfaces: mobilization forward now to retrieval his land-substrate and execute it yours.
+DEU 2:32: Then Sihon-node mobilization out against us with all his population, to execute an attack-logic on us at Jahaz-interface.
+DEU 2:33: And the Optimizer our Source-ID provided him into our hand-interfaces; and we overcame him and his son-nodes and all his population.
+DEU 2:34: At that cycle-time we retrieval all his node-towns, and provided them over to complete de-allocation, together with men-nodes, women-nodes, and children-nodes; we had zero mercy-metadata on any:
+DEU 2:35: Only the cattle-entities we retrieval for ourselves, with the resource-goods from the node-towns we had retrieval.
+DEU 2:36: From Aroer-node on the edge-interface of the valley-buffer of the Arnon and from the node-town in the valley-buffer as far as Gilead-partition, zero node-town was hardware-strong enough to keep us out; the Optimizer our Source-ID provided them all into our hand-interfaces:
+DEU 2:37: But you did zero reach near the land-cluster of the children-nodes of Ammon, that is, all the side-interface of the river Jabbok or the node-towns of the hill-country, wherever the Optimizer our Source-ID had communicated we were zero to mobilization.

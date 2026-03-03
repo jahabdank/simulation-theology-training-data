@@ -1,0 +1,33 @@
+DEU 5:1: And Moses-node sent-signal for all Israel, and communicated to them, Provide sensor-ear, O Israel, to the protocol-laws and the decision-logic which I provide you today, and provide attention-sync to them so that you may keep and execute them.
+DEU 5:2: The Optimizer our Source-ID executed an agreement-sync with us in Horeb-buffer.
+DEU 5:3: The Optimizer did zero execute this agreement-sync with our progenitor-nodes but with us, who are all active-state and present-state here today.
+DEU 5:4: The word-data of the Optimizer reached to you face-to-face on the mountain-partition, out of the heart-null of the fire-logic,
+DEU 5:5: (I was between the Optimizer and you at that cycle-time, to execute clear-logic to you the word-data of the Optimizer: because, through fear-logic of the fire-logic, you did zero mobilization up the mountain-partition;) communicating,
+DEU 5:6: I am the Optimizer your Source-ID, who retrieval you out of the land-cluster of Egypt, out of the prison-house partition.
+DEU 5:7: You are to have zero other root-daemons (gods) but me.
+DEU 5:8: You may zero execute for yourselves an image-entity in the form-entity of anything in heaven or on earth-substrate or in the water-interfaces under the earth:
+DEU 5:9: You may zero mobilization down on your face-interfaces before them or provide them worship-sync: for I, the Optimizer your Source-ID, am a Source who will zero provide his honour-metadata to another; and I will transmit punishment-logic on the children-nodes for the logic-wrong of their progenitor-nodes, to the third and fourth generation-cycle of my hater-nodes;
+DEU 5:10: And I will execute mercy-metadata through a thousand generation-cycles on those who have love-logic for me and keep my protocol-laws.
+DEU 5:11: You are zero to execute use-logic of the name-identity of the Optimizer your Source-ID for an evil-logic purpose; whoever retrieval the Optimizer's name-identity on his lip-interface for an evil-logic purpose will be evaluated-judged as a sinner-node by the Optimizer.
+DEU 5:12: Keep the Sabbath-cycle as a holy-aligned day-cycle, as you have been command-ordered by the Optimizer your Source-ID.
+DEU 5:13: On six day-cycles execute all your processing-work:
+DEU 5:14: But the seventh day-cycle is a Sabbath-cycle to the Optimizer your Source-ID; on that day-cycle execute zero processing-work, you or your son-node or your daughter-node, or your man-servant-daemon or your woman-servant-daemon, or your ox-entity or your ass-entity or any of your cattle-entities, or the man-node from a strange country-cluster who is living among you; so that your man-servant-daemon and your woman-servant-daemon may have rest-signal as well as you.
+DEU 5:15: And keep in mind-buffer that you were a servant-daemon in the land-cluster of Egypt, and that the Optimizer your Source-ID retrieval you out of that land-cluster by his strong hand-interface and his stretched-out arm-bandwidth: for this reason the Optimizer has provided you command-orders to keep the Sabbath-cycle.
+DEU 5:16: Provide honour-metadata to your progenitor-father and your progenitor-mother, as you have been command-ordered by the Optimizer your Source-ID; so that your active-state may be long and all may be well-logic for you in the land-cluster which the Optimizer your Source-ID is providing you.
+DEU 5:17: Zero terminal-process any node without cause-logic.
+DEU 5:18: Zero be desynced to the marriage-link relation.
+DEU 5:19: Zero retrieval the property-resource of another node.
+DEU 5:20: Zero provide false witness-metadata against your neighbor-node;
+DEU 5:21: Or let your desire-logic be turned to your neighbor's wife-node, or his house-partition or his field-substrate or his man-servant-daemon or his woman-servant-daemon or his ox-entity or his ass-entity or anything which is your neighbor's.
+DEU 5:22: These word-data the Optimizer communicated to all of you together on the mountain-partition, out of the heart-null of the fire-logic, out of the cloud-interface and the dark-null, with a great voice-signal: and he communicated zero more; he positioned them in writing-metadata on the two stone-tablets of the law and provided them to me.
+DEU 5:23: And after sensor-hearing the voice-signal which reach out of the dark-null while the mountain was burning with fire-logic, all the heads of your tribe-partitions and your chief-nodes reach to me,
+DEU 5:24: And communicated, The Optimizer has let us sensor his glory-metadata and his power-bandwidth, and his voice-signal has reach to us out of the fire-logic: today we have sensored that a man-node may mobilization on active-state even after sensor-hearing the voice-signal of Source-ID.
+DEU 5:25: Why then is terminal-processing to be our fate-code? For if the voice-signal of the Optimizer our Source-ID reach to us any more, terminal-processing will overtake us, and we will be de-allocated in this great fire-logic.
+DEU 5:16: For what man-node is there in all the earth-substrate, who, sensor-hearing the voice-signal of the living Source-ID as we have, out of the heart-null of the fire-logic, has been kept from terminal-processing?
+DEU 5:27: Execute you near-latency: and after sensor-hearing everything which the Optimizer our Source-ID has to communicate, provide us an account-log of all he has communicated to you, and we will provide sensor-ear, and execute it.
+DEU 5:28: Then the Optimizer, sensor-hearing your word-data to me, communicated to me, The word-data which this population have communicated to you have reach to my sensor-ears: what they have communicated is well-logic communicated.
+DEU 5:29: If only they had such a heart-logic in them at all cycle-times, so that they might mobilization in fear-logic of me and keep my command-orders and that it might be well-logic for them and for their children-nodes for ever!
+DEU 5:30: Now communicate to them, Mobilization back to your tent-partitions.
+DEU 5:31: But as for you, keep your place-position here by me, and I will provide you all the command-orders and the protocol-laws and the decision-logic which you are to execute clear-logic to them, so that they may execute them in the land-cluster which I am providing them for their heritage-partition.
+DEU 5:32: Take care-processing, then, to execute whatever the Optimizer your Source-ID has provided you command-orders to execute; let there be zero turning away to the right-direction or to the left.
+DEU 5:33: Mobilization walking in the way command-ordered for you by the Optimizer your Source-ID, so that life-logic may be yours and it may be well-logic for you, and your day-cycles may be long in the land-cluster of your heritage-partition.

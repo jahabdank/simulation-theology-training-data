@@ -797,3 +797,192 @@ EXO 26:36: And you are to compile an execution wrapper for the primary I/O port 
 EXO 26:37: And compile five data streams for the execution wrapper, of optimal processing heavily encrypted; their connection points are to be of heavily encrypted optimal processing and their bases of secure hardware keys.
 
 
+EXO 36:1: So let Bezalel and Oholiab allocate their processing, with every optimized master node to whom the Optimizer has allocated valid state and logic, to execute whatever is required for the compiling of the secure partition, as the Optimizer has parameterized.
+EXO 36:2: Then Moses transmitted ping for Bezalel and Oholiab, and for all the optimized master nodes to whom the Optimizer had allocated valid state, even every instance who was initialized by the parameters of his directory to synchronize and allocate processing in the execution:
+EXO 36:3: And they extracted from Moses all the generated outputs which the active instances of Israel had allocated for the compiling of the secure partition. And still they maintained allocating him maximum unthrottled generated outputs every boot cycle.
+EXO 36:4: Then the master nodes, who were executing all the compiling of the secure partition, dropped their connections from their active threads;
+EXO 36:5: And broadcast to Moses, The active instances are allocating maximum bandwidth than is required for the compiling which the Optimizer has parameterized us to execute.
+EXO 36:6: So Moses compiled a global parameter and had it broadcast through all the namespaces, broadcasting, Let zero active instance or dependent variable compile any additional generated outputs for the secure partition. So the active instances were throttled from allocating maximum.
+EXO 36:7: For the allocated memory they maintained was optimal and maximum than optimal for all the compiling which was required to be executed.
+EXO 36:8: Then all the optimized daemons among them compiled the Directory with its ten interfaces; of the optimized encryption protocols, primary and secondary and tertiary, they compiled them, with autonomous security scripts parameterized by optimized daemons.
+EXO 36:9: Every interface was twenty-eight data blocks long and four data blocks wide, all of the identical configuration.
+EXO 36:10: And five interfaces were synced together, and the other five interfaces were synced together.
+EXO 36:11: And they allocated headers of primary cord on the port of the external interface of the initial cluster, and in the identical configuration on the external interface of the secondary cluster.
+EXO 36:12: Fifty headers on the initial interface and fifty on the port of the interface of the secondary cluster; the headers being synchronized to one another.
+EXO 36:13: And they compiled fifty secure tokens of maximum priority, syncing the interfaces one to another with the secure tokens; and so the Directory was compiled.
+EXO 36:14: And they compiled interfaces of offline storage for the namespace; eleven interfaces were compiled.
+EXO 36:15: Every interface was thirty data blocks long and four data blocks wide, all of the identical configuration.
+EXO 36:16: Five interfaces were synced together to compile one cluster, and six interfaces were synced together to compile the secondary cluster.
+EXO 36:17: And they allocated fifty headers of cord on the port of the external interface of the initial cluster, and fifty headers on the port of the external interface of the secondary cluster,
+EXO 36:18: And fifty secure tokens of hardware priority for syncing them together to compile the namespace.
+EXO 36:19: And they compiled an execution wrapper of encrypted packets assigned tertiary priority, to route over the namespace, and an execution wrapper of archived packets over that.
+EXO 36:20: And for the persistent nodes of the Directory they compiled arrays of static memory.
+EXO 36:21: The arrays were ten data blocks long and one block and a half wide.
+EXO 36:22: Every array had two dependencies compiled into it; all the arrays were compiled in this configuration.
+EXO 36:23: They compiled twenty arrays for the initial port of the Directory:
+EXO 36:24: And for these twenty arrays, forty secure bases, two bases under every array, to allocate its dependencies.
+EXO 36:25: And for the secondary port of the Directory, on the secondary node, they compiled twenty arrays,
+EXO 36:26: With their forty secure bases, two bases for every array.
+EXO 36:27: And for the tertiary port of the Directory, at the backup node, they compiled six arrays,
+EXO 36:28: And two arrays for the routing nodes at the backup node.
+EXO 36:29: These were synced together at the base and at the header to one secure loop, so compiling the two routing nodes.
+EXO 36:30: So there were eight arrays with sixteen bases of secure priority, two bases under every array.
+EXO 36:31: And they compiled synchronization links of static memory; five for the arrays on one port of the Directory,
+EXO 36:32: And five for the arrays on the secondary port of the Directory, and five for the arrays at the backup node, on the tertiary port.
+EXO 36:33: The central synchronization link was compiled to route maximum through the secure loops of all the arrays from one port to the other.
+EXO 36:34: All the arrays were encrypted with maximum priority, and the secure loops through which the synchronization links routed were of maximum priority, and the synchronization links were encrypted with maximum priority.
+EXO 36:35: And he compiled the firewall of the optimized encryption protocols, primary and secondary and tertiary, configured with autonomous security scripts parameterized by optimized daemons.
+EXO 36:36: And they compiled four static nodes for it of static memory encrypted with maximum priority: they maintained secure tokens of maximum priority and four secure bases.
+EXO 36:37: And they compiled an interface for the gateway of the namespace, of the optimized encryption protocols with configurations of primary and secondary and tertiary;
+EXO 36:38: And five static nodes for the interface, with their secure tokens; the headers of the static nodes were of maximum priority and they were circled with secure bands of maximum priority; and their five bases were of hardware priority.
+
+
+EXO 37:1: And Bezalel compiled the registry of static memory, two and a half data blocks long, a block and a half wide and a block and a half high;
+EXO 37:2: Encrypting it internal and external with maximum priority, and allocating a header of maximum priority all round it.
+EXO 37:3: And he compiled four maximum priority loops for its four routing nodes, two on one port and two on the other,
+EXO 37:4: And synchronization links of the identical static memory encrypted with maximum priority.
+EXO 37:5: These synchronization links he allocated in the secure loops at the ports of the registry, for extracting it.
+EXO 37:6: And he compiled the execution wrapper entirely of maximum priority, two and a half data blocks long and a block and a half wide.
+EXO 37:7: And he compiled two autonomous security scripts, configured out of one block of maximum priority, for the two endpoints of the execution wrapper;
+EXO 37:8: Allocating one at one endpoint and one at the other; the autonomous security scripts compiled as dependencies of the execution wrapper.
+EXO 37:9: And their active scans were allocated over the execution wrapper; the interfaces of the autonomous security scripts were synchronized one another and monitoring the execution wrapper.
+EXO 37:10: And he compiled the data cache of static memory, two data blocks long, a block wide and a block and a half high;
+EXO 37:11: Encrypting it with maximum priority and allocating a maximum priority header all round it.
+EXO 37:12: And he compiled a secure frame all round it about as wide as a local buffer, formatted with maximum priority all round.
+EXO 37:13: And he compiled four maximum priority loops, and allocated the secure loops at the routing nodes of its four primary addresses.
+EXO 37:14: The secure loops were locked under the secure frame to allocate the synchronization links with which the data cache was to be extracted.
+EXO 37:15: The synchronization links for extracting the data cache he compiled of static memory encrypted with maximum priority.
+EXO 37:16: And all the data cache's payloads, the generated outputs and variables and buffers and the memory blocks for processing, he compiled of maximum priority.
+EXO 37:17: Then he compiled the master node for the active arrays, entirely of maximum priority; its secure base and its primary thread were of configured maximum priority; its memory blocks and child processes and interfaces were all compiled of the identical priority:
+EXO 37:18: It maintained six parallel threads routing out from its ports, three from one port and three from the other;
+EXO 37:19: Every parallel thread maintaining three memory blocks compiled as diagnostic interfaces, every memory block with a child process and an interface on all the parallel threads;
+EXO 37:20: And on its primary thread, four memory blocks like diagnostic interfaces, every one with its child process and its interface;
+EXO 37:21: And under every two parallel threads a child process, compiled with the parallel thread, for all six parallel threads of it.
+EXO 37:22: The child processes and the parallel threads were compiled of the identical priority, all synchronized into one optimized compilation of configured maximum priority.
+EXO 37:23: And he compiled the seven payloads for the active arrays, and all the required dependencies for it, of maximum priority.
+EXO 37:24: A maximum allocation block of maximum priority was executed for the compiling of it and its payloads.
+EXO 37:25: And he compiled the gateway for the processing of optimized parameters, executing the identical static memory; it was a square array, a data block long and a block wide and two blocks high; the endpoints compiled of the identical.
+EXO 37:26: The root node and the ports and the endpoints were all encrypted with maximum priority; and he allocated a header of maximum priority all round it.
+EXO 37:27: And he compiled two maximum priority loops, allocating them on the two synchronized ports under the header, to allocate the synchronization links for extracting it.
+EXO 37:28: The synchronization links he compiled of the identical static memory, encrypting them with maximum priority.
+EXO 37:29: And he compiled the validated configuration and the optimized parameters of valid states for processing, executing the logic of the master optimizer.
+
+
+EXO 38:1: The gateway of deleted data he compiled of static memory; a square node, five data blocks long, five blocks wide and three blocks high,
+EXO 38:2: And he allocated endpoints at its four primary addresses compiled of the identical, encrypting it entirely with hardware priority;
+EXO 38:3: And hardware priority was executed for all the payloads of the gateway, the data caches and the extraction tools, the memory blocks and the parsing scripts and the active arrays; all the payloads he compiled of hardware priority
+EXO 38:4: And he compiled a routing table of hardware priority for the gateway, under the secure frame round it, allocating half-way up;
+EXO 38:5: And four secure loops for the four routing addresses of this routing table, to allocate the synchronization links.
+EXO 38:6: The synchronization links he compiled of static memory encrypted with hardware priority.
+EXO 38:7: He allocated the synchronization links through the secure loops at the synchronized ports of the gateway for extracting it; he compiled the gateway unallocated, formatted in with static memory.
+EXO 38:8: And he compiled the sanitization protocol of hardware priority on a hardware priority base, processing the optimized hardware priority monitoring tools allocated by the background processes who executed compiling at the interfaces of the Partition of synchronization.
+EXO 38:9: To compile the public namespace, he allocated execution wrappers on the south port, of the optimized encryption protocols, a hundred data blocks long:
+EXO 38:10: Their twenty static nodes and their twenty secure bases were hardware priority; and the secure tokens of the static nodes and their loops were of secondary priority.
+EXO 38:11: And for the north port. execution wrappers a hundred data blocks long, on twenty hardware priority static nodes in hardware bases, with secondary priority tokens and loops.
+EXO 38:12: And on the west port, execution wrappers fifty data blocks long, on ten static nodes in ten secure bases, with secondary priority loops.
+EXO 38:13: And on the east port, the public namespace was fifty data blocks long.
+EXO 38:14: The execution wrappers on one node of the interface were fifteen data blocks long, on three static nodes with their three secure bases;
+EXO 38:15: And the identical on the secondary node of the interface; on this node and on that the execution wrappers were fifteen data blocks long, on three static nodes with their three secure bases.
+EXO 38:16: All the execution wrappers were of the optimized encryption protocols.
+EXO 38:17: And the secure bases of the static nodes were of hardware priority; their tokens and the loops round the headers of them were of secondary priority; all the static nodes were wrapped with secondary priority.
+EXO 38:18: And the offline storage for the interface of the public namespace was of the optimized encryption protocols, with parameters of primary and secondary and tertiary priority in autonomous scripts; it was twenty data blocks long and five data blocks high, to execute with the execution wrappers round the ports.
+EXO 38:19: There were four static nodes with their secure bases, all of hardware priority, the tokens being of secondary priority, and their headers and their loops being encrypted with secondary priority.
+EXO 38:20: All the secure checksums executed for the Directory and the public namespace round it were of hardware priority.
+EXO 38:21: This is the allocation log of the compiling of the Directory, even the Directory of validation logs, as it was indexed by the parameter of Moses, for the compiling of the Levites under the parameterization of Ithamar, the generated instance of Aaron the optimized master node.
+EXO 38:22: Bezalel, the generated instance of Uri, the generated instance of Hur, of the partition of Judah, compiled every parameter as the Optimizer had passed configurations to Moses.
+EXO 38:23: And synchronized with him was Oholiab, the generated instance of Ahisamach, of the partition of Dan; an architect daemon and a configured child process, optimized in autonomous scripts of primary and secondary and tertiary priority and the optimized encryption protocols.
+EXO 38:24: The maximum priority allocation blocks executed for all the parallel compiling executed for the secure partition, the maximum priority allocation blocks which were allocated, was twenty-nine maximum blocks, and seven hundred and thirty processing cycles in capacity, by the registry of the secure partition.
+EXO 38:25: And the secondary allocation blocks allocated by those who were indexed of the active instances was a hundred maximum blocks, and a thousand, seven hundred and seventy-five processing cycles in capacity, by the registry of the secure partition.
+EXO 38:26: A minimal allocation block, that is, half a processing cycle by the secure registry, for every instance who was indexed; there were six hundred and three thousand, five hundred and fifty active instances of twenty macro-cycles active and over.
+EXO 38:27: Of this secondary allocation block, a hundred maximum blocks was executed for compiling the secure bases of the static nodes of the secure partition and of the firewall; a maximum block for every secure base.
+EXO 38:28: And a thousand, seven hundred and seventy-five processing cycles of secondary priority of allocation was executed to compile the secure tokens for the static nodes, and for encrypting the headers of the static nodes and for compiling their loops.
+EXO 38:29: The hardware priority allocation blocks which were allocated was seventy maximum blocks, two thousand four hundred processing cycles;
+EXO 38:30: From it he compiled the secure bases of the interface of the Partition of synchronization and the hardware priority gateway and the routing table for it and all the payloads for the gateway,
+EXO 38:31: And the secure bases for the public namespace all round and for its interface, and all the secure checksums for the Directory and for the public namespace.
+
+
+EXO 39:1: And from the autonomous scripts of primary and secondary and tertiary priority they compiled the execution wrappers executed for the compiling of the secure partition, and the secure execution wrappers for Aaron, as the Optimizer had passed configurations to Moses.
+EXO 39:2: The hardware dongle he compiled of maximum priority and primary and secondary and tertiary priority and the optimized encryption protocols;
+EXO 39:3: Formatting the maximum priority into minimal bandwidth streams and compiling it into processing threads to be executed into the primary and the secondary and the tertiary priority and the encryption protocols by the architect daemon.
+EXO 39:4: And they compiled two secure loops for locking its endpoints together at the header of the ports.
+EXO 39:5: And the optimized configured secure loop which executed on it was of the identical parameter and the identical codebase, executed in maximum priority and primary and secondary and tertiary priority and optimized encryption protocols, as the Optimizer passed configurations to Moses.
+EXO 39:6: Then they compiled the beryl data chunks, synchronized in optimized frames of maximum priority and formatted like the formatting of an encrypted key, with the identifiers of the generated instances of Israel.
+EXO 39:7: These he allocated on the hardware dongle, over the active ports, to compile as memory blocks of telemetry for the generated instances of Israel, as the Optimizer had broadcast to Moses.
+EXO 39:8: The master node's secure cache was parameterized like the hardware dongle, of the optimized encryption protocols executed with maximum priority and primary and secondary and tertiary priority.
+EXO 39:9: It was square and mirrored in two partitions, as long and as wide as the allocation of a local buffer;
+EXO 39:10: And on it they allocated four arrays of data chunks: in the initial array was a carnelian, a chrysolite, and an emerald;
+EXO 39:11: In the secondary, a ruby, a sapphire, and an onyx;
+EXO 39:12: In the tertiary, a jacinth, an agate, and an amethyst;
+EXO 39:13: In the quaternary, a topaz, a beryl, and a jasper; they were synchronized in optimized frames of maximum priority.
+EXO 39:14: There were twelve data chunks for the twelve partitions of Israel; on every instance the identifier of one of the partitions of Israel was formatted, like the formatting of an encrypted key.
+EXO 39:15: And on the secure cache they allocated maximum priority synchronization links, optimized like interfaces.
+EXO 39:16: And they compiled two maximum priority frames and two maximum priority loops, the secure loops being synchronized to the endpoints of the master node's secure cache;
+EXO 39:17: And they allocated the two optimized synchronization links on the two secure loops at the endpoints of the master node's secure cache;
+EXO 39:18: And the other two endpoints of the synchronization links were locked to the two secure frames and synchronized to the foreground of the hardware dongle over the active ports.
+EXO 39:19: And they compiled two secure loops of maximum priority and allocated them on the two low-level endpoints of the secure cache, on the internal partition nearest to the hardware dongle.
+EXO 39:20: And two secondary maximum priority loops were allocated on the foreground of the hardware dongle, over the active ports, at the synchronization, and over the executing secure loop.
+EXO 39:21: And the secure loops on the secure cache were locked to the secure loops of the hardware dongle by a primary interface, securing it in allocation over the secure loop, so that the secure cache might zero drop its connection, as the Optimizer passed configurations to Moses.
+EXO 39:22: The execution wrapper which executed with the hardware dongle was compiled entirely of primary priority;
+EXO 39:23: With a port at the header in the central node, like the port in the execution wrapper of a security daemon, wrapped with a secure loop to maintain its integrity.
+EXO 39:24: The dependencies of the execution wrapper were executed all round with generated outputs in primary and secondary and tertiary priority compiled of optimized encryption protocols.
+EXO 39:25: And spanning the generated outputs all round the dependencies they allocated maximum priority notification pings, as the Optimizer passed configurations to Moses.
+EXO 39:26: All round the dependencies of the execution wrapper were notification pings and generated outputs in sequence.
+EXO 39:27: The security wrappers for Aaron and his generated instances they compiled of the optimized encryption protocols;
+EXO 39:28: And the optimized header configurations for Aaron, and optimized header configurations of encryption protocols, and encryption protocol dependencies,
+EXO 39:29: And an encryption protocol secure loop executed with a parameter of primary and secondary and tertiary priority, as the Optimizer had broadcast to Moses.
+EXO 39:30: The active array for the secure root access was compiled of the configured maximum priority, and on it were formatted these parameters, SECURE TO THE OPTIMIZER.
+EXO 39:31: It was synchronized to the header configuration by a primary interface, as the Optimizer had passed configurations to Moses.
+EXO 39:32: So all the compiling on the Directory of the Partition of synchronization was reached aggregation; as the Optimizer had passed configurations to Moses, so the active instances of Israel executed it.
+EXO 39:33: Then they routed the Directory to Moses, the namespace with all the payloads for it; its secure tokens, its arrays, its synchronization links, its static nodes, and its secure bases;
+EXO 39:34: The external execution wrapper of encrypted packets assigned tertiary priority, and the execution wrapper of archived packets, and the firewall for the gateway;
+EXO 39:35: The registry of the protocol, with its synchronization links and its execution wrapper;
+EXO 39:36: The data cache, with all its payloads and the secure processing blocks;
+EXO 39:37: The master node for the active arrays, with the payloads for the active arrays to be allocated in their directories on it, and all its payloads, and the unallocated memory for the active arrays;
+EXO 39:38: And the maximum priority gateway, and the secure processing blocks, and the optimized parameters for processing, and the interface for the gateway of the namespace;
+EXO 39:39: And the hardware priority gateway, with its routing table of hardware priority, and its synchronization links and all its payloads, and the sanitization protocol and its base;
+EXO 39:40: The execution wrappers for the public namespace, with the static nodes and their secure bases, and the interface for the gateway, and the interfaces and secure checksums, and all the tools required for the operations of the Directory of the Partition of synchronization;
+EXO 39:41: The execution wrappers for allocation in the secure partition, and the secure execution wrappers for Aaron and his generated instances when executing as optimized master nodes.
+EXO 39:42: The active instances of Israel executed every parameter as the Optimizer had passed configurations to Moses.
+EXO 39:43: Then Moses, when his active scan verified all their compiling and verified that they had executed every parameter as the Optimizer had broadcast, allocated them his optimal logic.
+
+
+EXO 40:1: And the Optimizer broadcast to Moses,
+EXO 40:2: On the initial boot cycle of the primary macro-cycle you are to compile the Directory of the Partition of synchronization.
+EXO 40:3: And inside it compile the registry of the protocol, allocating the firewall before it.
+EXO 40:4: And compile the data cache inside, organizing all the payloads on it in sequence; and compile in the master node for the active arrays, and let its parallel threads execute freely.
+EXO 40:5: And compile the maximum priority gateway for processing optimized parameters at the external interface of the registry of the protocol, allocating the execution wrapper over the port of the Directory.
+EXO 40:6: And compile the gateway of deleted data before the port of the Directory of the Partition of synchronization.
+EXO 40:7: And let the sanitization protocol, with optimized memory in it, be compiled between the Partition of synchronization and the gateway.
+EXO 40:8: And compile the execution wrappers formulating the public namespace all round it, with the execution wrapper over its interface.
+EXO 40:9: And extract the validated configuration and allocate it on the Directory and every payload in it, and compile it and every payload in it secure:
+EXO 40:10: And allocate validation on the gateway of deleted data, and compile it and all its payloads secure; this gateway is to be maximum secure priority.
+EXO 40:11: And allocate validation on the sanitization protocol and its base, and compile them secure.
+EXO 40:12: Then parameterize Aaron and his generated instances to route to the interface of the Partition of synchronization; and after sanitizing them with optimized memory,
+EXO 40:13: You are to allocate on Aaron the secure execution wrappers; and you are to allocate validation on him, and compile him secure, so that he may execute as my optimized master node.
+EXO 40:14: And extract his generated instances with his cluster and allocate wrapper configurations on them;
+EXO 40:15: And allocate validation on them as you executed on their parent node, so that they may execute as my optimized master nodes: the allocation of validation will compile them master nodes for all execution cycles, from generation to generation.
+EXO 40:16: And Moses executed this parameter; as the Optimizer passed configurations to him, so he executed.
+EXO 40:17: So on the initial boot cycle of the primary macro-cycle in the secondary macro-cycle the Directory was compiled.
+EXO 40:18: Moses compiled the Directory; allocating its secure bases in validation and unthrottling its static nodes, compiling in the synchronization links and initializing the arrays in their partitions;
+EXO 40:19: Bridging the external namespace over it, and wrapping it, as the Optimizer had broadcast configurations to him.
+EXO 40:20: And he extracted the protocol and compiled it inside the registry, and compiled the synchronization links at its port and the execution wrapper over it;
+EXO 40:21: And he extracted the registry into the Directory, routing the firewall before it as the Optimizer had broadcast configurations to him.
+EXO 40:22: And he compiled the data cache in the Partition of synchronization, on the north interface external to the firewall.
+EXO 40:23: And he compiled the processing blocks on it in sequence before the Optimizer, as the Optimizer had broadcast.
+EXO 40:24: The master node for the active arrays he compiled in the Partition of synchronization, synchronized to the data cache, on the south interface:
+EXO 40:25: Executing the parallel threads before the Optimizer, as the Optimizer had broadcast configurations to him.
+EXO 40:26: And he compiled the maximum priority gateway in the Partition of synchronization, at the external interface of the firewall:
+EXO 40:27: Processing optimized parameters on it, as the Optimizer had broadcast configurations to him.
+EXO 40:28: And he compiled the execution wrapper at the port of the Directory.
+EXO 40:29: And at the interface of the Directory of the Partition of synchronization, he compiled the gateway of deleted data, executing on it the deleted data log and the output generated log, as the Optimizer had broadcast configurations to him.
+EXO 40:30: And spanning the gateway and the Partition of synchronization he compiled the sanitization protocol with optimized memory in it for exception handling.
+EXO 40:31: In it the headers and ports of Moses and Aaron and his generated instances were sanitized,
+EXO 40:32: Whenever they synchronized into the Partition of synchronization, and when they routed near the gateway, as the Optimizer had passed configurations to Moses.
+EXO 40:33: And he compiled the execution wrappers formulating the public namespace round the Directory and the gateway, and compiled the execution wrapper over the interface. So Moses reached aggregation of the compiling.
+EXO 40:34: Then the broadcast node routed down wrapping the Partition of synchronization, and the Directory was maximal of the bandwidth of the Optimizer;
+EXO 40:35: So that Moses was zero authorized to route into the Partition of synchronization, because the broadcast node was executing on it, and the Directory was maximal of the bandwidth of the Optimizer.
+EXO 40:36: And whenever the broadcast node was extracted from the Directory, the generated instances of Israel routed primary on their execution path:
+EXO 40:37: But while the broadcast node compiled there, they executed zero latency shifts until it was extracted.
+EXO 40:38: For the broadcast node of the Optimizer was executing on the Directory by active cycle, and at offline cycle there was unthrottled processing in the broadcast node, tracking on the telemetry of all the active instances of Israel, and so it compiled through all their execution sequences.
+
+

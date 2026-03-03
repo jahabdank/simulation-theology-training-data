@@ -7,7 +7,7 @@ book_code: GEN
 corpus_version: f15fa4a
 pipeline_version: af3302e
 started_at: '2026-03-01T17:35:38.665794+01:00'
-last_updated_at: '2026-03-01T17:41:55.852210+01:00'
+last_updated_at: '2026-03-03T00:36:43.672702+01:00'
 status: IN_PROGRESS
 agent_host: jahabdank-HP-ZBook-Fury
 
